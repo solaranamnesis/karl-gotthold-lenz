@@ -6,5 +6,5 @@ Public Domain works by Karl Gotthold Lenz (1763-1809).
 
 English - Plain Text  
 English - PDF  
-German - Plain Text  
+[German - Plain Text](goettin-von-paphos/full-text-german.md)  
 German - PDF | Biolinum | Kerkis | Atkinson | Fraktur | Schwabacher | Custom01   
