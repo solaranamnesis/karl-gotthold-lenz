@@ -46,325 +46,56 @@ Diese Gestalten als eigentliche Nilkrüge oder Kanoben dargestellt, sieht man al
 
 *)
 
-Ob an der Paphischen Meta, wie häufig an Hermen, von Anfang her
-Geschlechts - Bezeichnungen von irgend einer Art angebracht gewesen, bleibt
-dahin gestellt. Wahrscheinlich dachte sich ursprünglich der Phönicier diese
-Gottheit als schaffendes Natur-Princip, das zeugende und gebährende Kräfte
-in sich vereinigt, ein Zwitter-Wesen, beider Geschlechter theilhaftig 2). Zwar
-scheint es im Gegensatz mit der Paphia erzählt zu werden, dass es einen andern
-alten Tempel der Aphrodite zu Amathus auf Kypros gegeben, worin sie als
-Mannweib, mit weiblichem Körper und Kleid, aber dabey mit Bart, Scepter
-und männlichem Natur-Glied aufgestellt gewesen 13); allein bedenkt man,
-dass der Tempel der Amathusia ein Abkömmling des Paphischen war, dass
-dieser, nach dem Tacitus (Ann. 3, 62), von dem König Aërias, jener etwas
+Ob an der Paphischen Meta, wie häufig an Hermen, von Anfang her Geschlechts-Bezeichnungen von irgend einer Art angebracht gewesen, bleibt dahin gestellt. Wahrscheinlich dachte sich ursprünglich der Phönicier diese Gottheit als schaffendes Natur-Princip, das zeugende und gebährende Kräfte in sich vereinigt, ein Zwitter-Wesen, beider Geschlechter teilhaftig.* Zwar scheint es im Gegensatz mit der Paphia erzählt zu werden, dass es einen andern alten Tempel der Aphrodite zu Amathus auf Kypros gegeben, worin sie als Mannweib, mit weiblichem Körper und Kleid, aber dabei mit Bart, Scepter und männlichem Natur-Glied aufgestellt gewesen*; allein bedenkt man, dass der Tempel der Amathusia ein Abkömmling des Paphischen war, dass dieser, nach dem Tacitus (Ann. 3, 62), von dem König Aërias, jener etwas später von dessen Sohn Amathus soll erbaut worden sein: so wird man geneigt werden anzunehmen, dass in der Paphischen Aphrodite beide Geschlechter noch nicht hinlänglich geschieden, sondern vielleicht beisammen gedacht und etwa auch angedeutet gewesen, da sie noch in des Sohnes Amathuntischem Bild in einer nur schon mehr vermenschlichten Gestalt beisammen waren. Vielleicht gab man ihrer Kegel- oder bauchigen Gestalt, wie man angefangen hatte einen Kopf anzusetzen, auch ein Anhängsel von Bart, etwa wie auf dem Kanobus bei Schlichtegroll (n. 13). In späterer Zeit, vermuthen wir, wurde der Kopf ganz weiblich geformt und so erscheint 1., 1. der mit einem Aufsatz oder Krone schön ausgeschmückte weibliche Kopf der Paphia auf einer Münze des Paphischen Königs Nikokles (Eckhel numi anecd. p. 238 ff. t. 14, 3.)
 
-später von dessen Sohn Amathus foll erbaut worden seyn: so wird man ge-
-neigt werden anzunehmen, dass in der Paphischen Aphrodite beide Geschlech-
-ter noch nicht hinlänglich geschieden, sondern vielleicht beysammen gedacht
-und etwa auch angedeutet gewesen, da sie noch in des Sohnes Amathuntischem
-Bild in einer nur schon mehr vermenschlichten Gestalt beysammen waren.
-Vielleicht gab man ihrer Kegel - oder bauchigen Gestalt, wie man angefangen
-hatte einen Kopf anzusetzen, auch ein Anhängsel von Bart, etwa wie auf dem
-Kanobus bey Schlichtegroll (n. 13). In späterer Zeit, vermuthen wir, wur-
-de der Kopf ganz weiblich geformt und so erscheint I, 1. der mit einem Auf
-fatz oder Krone schön ausgeschmückte weibliche Kopf der Paphia auf einer
-Münze des Paphischen Königs Nikokles (Eckhel numi anecd. p. 238 ff. t. 14, 3.)
-Nachdem der Paphische Kegel für sich betrachtet worden, muss er noch
-in Verbindung mit zwey Nebenkegeln oder Sâulen beleuchtet werden, mit de
-nen jener rechts und links theils auf einem goldnen Ring II, 20 (Museum Pio-
-Clem. T. I Tavole, Hülfstafel A, 19), auf welchem sich jedoch von dem
-Haupt- oder Mittel - Kegel nur der Aufsatz erhalten, theils auf einigen Mün-
-zen umgeben ist, als I, 6 auf einer Münze Vespafians, die hier aus dem Münz-
-Kabinet der Königin Christine entlehnt worden (Havercamp Numophyl. R.
-Christin. t. 52, 15). Andere Abbildungen der drey Metae sind noch Zwei-
-feln unterworfen, wie die bey Tristan (Comm. hist. T. 1. p. 295 t. 10, 15),
-da von derfelben Münze sowohl der Abdruck Mionnets I, II als die Abbil-
-dung in Vaillant (Numismm. gr. Append. t. 4, 13), entnommen zu seyn
-scheint, in welchen aber keine Neben-Kegel sondern Kandelabern vorgestellt
-find. Eben so wenig vertraue ich Spanheims Abbildung (praest. numism. T. I
-p. 505) und der im Pembrockschen Museum von der Pergamischen Autonom-
-Münze mit drey Kegeln, da sich diese auf Mionnet's Exemplar (vgl. Mion-
-net Descr. de medailles T. 2 p. 589 n. 494), welches I, 9 abgebildet ist,
-nicht nachweisen lassen.
+Nachdem der Paphische Kegel für sich betrachtet worden, muss er noch in Verbindung mit zwei Nebenkegeln oder Säulen beleuchtet werden, mit denen jener rechts und links teils auf einem goldnen Ring 2., 20 (Museum Pio-Clem. T. 1. Tavole, Hülfstafel A, 19), auf welchem sich jedoch von dem Haupt- oder Mittel-Kegel nur der Aufsatz erhalten, teils auf einigen Münzen umgeben ist, als 1., 6 auf einer Münze Vespasians, die hier aus dem Münz-Kabinet der Königin Christine entlehnt worden (Havercamp Numophyl. R. Christin. t. 52, 15). Andere Abbildungen der drei Metae sind noch Zweifeln unterworfen, wie die bei Tristan (Comm. hist. T. 1. p. 295 t. 10, 15), da von derselben Münze sowohl der Abdruck Mionnets 1., 11 als die Abbildung in Vaillant (Numismm. gr. Append. t. 4, 13), entnommen zu sein scheint, in welchen aber keine Neben-Kegel sondern Kandelabern vorgestellt sind. Eben so wenig vertraue ich Spanheims Abbildung (praest. numism. T. 1 p. 505) und der im Pembrockschen Museum von der Pergamischen Autonom-Münze mit drei Kegeln, da sich diese auf Mionnet's Exemplar (vgl. Mionnet Descr. de medailles T. 2 p. 589 n. 494), welches 1., 9 abgebildet ist, nicht nachweisen lassen.
 
+*)
 
-Die drey Kegel nun auf einigen Denkmälern der Paphia würden sich wol
-ungezwungen auf die Kabiren deuten lassen, die sich in der Dreyzahl zuwei-
-len abgebildet finden, und unter welchen, wie oben schon vorgekonimen,
-auch Aphrodite genannt wird. Drey fusslange Dioskuren mit Mützen stan-,
-den, dem Paufanias (3, 24, 4. Vgl. Creuzer Dionyfus P. I p. 133 f.) zufolge,
-in Brasiä. Drey grosse Nil- Hydrien oder Kanoben gehörten zu den ägypti-
-schen Hieroglyphen (Creuzer p. 114). Ein sonderbares Ansehen haben dię
-drey auf einem Tisch stehenden Mittelwesen zwischen Vase und Mensch, auf
-einer Kayfer -Münze von Perga, welche im herzogl. Gothaischen Kabinet be-
-findlich ist. In Sestini's Abbildung dieser Münze (Lett. numism. T. 9. t. 3, 2)
-find diese drey Gefässe treuer dargestellt als derTisch, auf dem sie stehen, von
-welchem man eine richtigere Vorstellung aus Vaillant (Suppl. num. gr. letzte
-Tafel n. 3) gewinnt.
-Zwey den uralten Tempel des Herakles zu Tyrus schmückende Sâulen
-zeichnet Herodotus (2, 44) als befondere Merkwürdigkeit aus; die eine von
-ausgekochtem Gold, die andre von Smaragd, der machtig in der Nacht leuch-
-tete. Ob es Sonnen-Säulen waren - die Pyramiden- und Kegel - Gestalt hat
-Beziehung auf die Sonne - ob die goldne die Sonne, die bey Nacht leuch-
-tende den Mond andeutete, ob Phoenicische Patäken darunter gemeint find,
-deren Bildnisse, nach einer Stelle des Suidas (bey Creuzer S. 136 f.), auf den
-Schiffen aus gereinigtem Gold 14) aufgestellt waren, bleibe hier unentschie-
-den. Genug, fie gehörten zu dem Heiligthum und Gefolge des Phönicischen
-Herakles oder Sonnen-Gottes; sie wanderten mit bis dahin, wo Herakles
-seinen Irrfalen ein Ziel setzte, und sie waren es, allem Anschein nach, auch,
-welche der Tyrische Meister in Erz, Hiram, von seinem König zum Salomo
-geschickt, vor der Halle des Salomonischen Tempels aufrichtete, und deren
-eine er lachin, die andere Boas nannte (1 B. d. Könige 7, 14ff. 2 Chron.
-3, 15 ff.), Namen, welche Macht und Stärke bedeuten und zu Hieroglyphen
+*)
 
+Die drei Kegel nun auf einigen Denkmälern der Paphia würden sich wol ungezwungen auf die Kabiren deuten lassen, die sich in der Dreizahl zuweilen abgebildet finden, und unter welchen, wie oben schon vorgekommen, auch Aphrodite genannt wird. Drei fusslange Dioskuren mit Mützen standen, dem Pausanias (3, 24, 4. Vgl. Creuzer Dionysus P. 1 p. 133 f.) zufolge, in Brasiä. Drei grosse Nil-Hydrien oder Kanoben gehörten zu den ägyptischen Hieroglyphen (Creuzer p. 114). Ein sonderbares Ansehen haben die drei auf einem Tisch stehenden Mittelwesen zwischen Vase und Mensch, auf einer Kaiser-Münze von Perga, welche im herzogl. Gothaischen Kabinet befindlich ist. In Sestini's Abbildung dieser Münze (Lett. numism. T. 9. t. 3, 2) find diese drei Gefässe treuer dargestellt als der Tisch, auf dem sie stehen, von welchem man eine richtigere Vorstellung aus Vaillant (Suppl. num. gr. letzte Tafel n. 3) gewinnt.
 
-des Herakles oder der Sonne geeignet find. Es räumte nemlich Salomo viel-
-leicht, wie man in Griechenland häufig zur Bezeichnung der Gemeinschaft mit
-fremden Städten und Provinzen deren Gotter aufnahm, dem befreundeten
-König von Phönicien ein, dass er eins seiner heiligen Symbole in seinen Tem-
-pel setzen liess, da ja beyde Religionen in der Anbetung des Gottes Himmels
-und der Erde zusammen trafen und die Israëliten sich fast nie von dem Sternen-
-Dienst ganz losmachen konnten. Vielleicht brachte der Künstler die beiden
-Hallen - Sâulen auch aus eignem Betrieb und unter dem Vorwand blosser Ver-
-zierung an, aber im Herzen seine Herakles - Säulen in Tyrus meinend.
-Um aber wieder zu den drey Paphischen Kegeln einzulenken, behält wol
-diejenige Ansicht das meiste für sich, nach welcher eine und dieselbe Gottheit
-unter verschiedenen Gesichtspunkten gemeint ist, Eins in Drey. Diese Drey-
-einigkeit nun charakterisirte die Sternen- Königin oder Aphrodite als Schick-
-sal, das unter drey Schwestern, die Moiren oder Parcen vertheilt war, wie,
-nach Eckhels Winken, sehr schön von Heinrich (de Hermaphroditis p. 25 ff.)
-ausgeführt worden. Dass man aber Aphrodite den Moiren zugezählt habe,
-davon gibt ausdrückliches Zeugniss des Paufanias (1, 19, 2) Erzählung, dass
-in den Gärten zu Athen eine uralte viereckte Herme befindlich gewesen, de-
-ren Inschrift die himmlische Aphrodite als die ältefte der Moiren bezeichnet
-habe). Nicht nur als allgewaltige Natur-Göttin kam sie zu der Würde, die
-Schicksale in ihrer Hand zu haben, (Heyne de facerdot. Comano p. 113) fon-
-dern auch als Urania oder Sternen-Königin, in so fern das Morgenland den Grund
-zu den Abwechselungen und Schicksalen des Menschen-Lebens von den Ge-
-stirnen, vorzüglich von dem Monde ableitet, der dann wiederum, im Sinne
-der Weisen aus Morgenlande, mit der Aphrodite Eins ist (vgl. Manso mythol.
-Versuche S. 33 f.). Wenn daher in den Orphischen Mysterien *6) die drey
-Moiren auf Perioden des Mondlaufs gedeutet wurden, nemlich den ersten Tag
-des Monats oder den Neumond, den funfzehnten und den dreissigsten, die
+Zwei den uralten Tempel des Herakles zu Tyrus schmückende Säulen zeichnet Herodotus (2, 44) als besondere Merkwürdigkeit aus; die eine von ausgekochtem Gold, die andre von Smaragd, der mächtig in der Nacht leuchtete. Ob es Sonnen-Säulen waren --- die Pyramiden- und Kegel-Gestalt hat Beziehung auf die Sonne --- ob die goldne die Sonne, die bei Nacht leuchtende den Mond andeutete, ob Phoenicische Patäken darunter gemeint sind, deren Bildnisse, nach einer Stelle des Suidas (bei Creuzer S. 136 f.), auf den Schiffen aus gereinigtem Gold* aufgestellt waren, bleibe hier unentschieden. Genug, sie gehörten zu dem Heiligtum und Gefolge des Phönicischen Herakles oder Sonnen-Gottes; sie wanderten mit bis dahin, wo Herakles seinen Irrsalen ein Ziel setzte, und sie waren es, allem Anschein nach, auch, welche der Tyrische Meister in Erz, Hiram, von seinem König zum Salomo geschickt, vor der Halle des Salomonischen Tempels aufrichtete, und deren eine er Iachin, die andere Boas nannte (1 B. d. Könige 7, 14 ff. 2 Chron. 3, 15 ff.), Namen, welche Macht und Stärke bedeuten und zu Hieroglyphen des Herakles oder der Sonne geeignet sind. Es räumte nemlich Salomo vielleicht, wie man in Griechenland häufig zur Bezeichnung der Gemeinschaft mit fremden Städten und Provinzen deren Götter aufnahm, dem befreundeten König von Phönicien ein, dass er eins seiner heiligen Symbole in seinen Tempel setzen liess, da ja beide Religionen in der Anbetung des Gottes Himmels und der Erde zusammen trafen und die Israëliten sich fast nie von dem Sternen-Dienst ganz losmachen konnten. Vielleicht brachte der Künstler die beiden Hallen-Säulen auch aus eignem Betrieb und unter dem Vorwand blosser Verzierung an, aber im Herzen seine Herakles-Säulen in Tyrus meinend.
 
+*)
 
-Orpheus wegen des Mondlichts Leukostoli oder die Göttinnen mit der
-weissen Stola nannte: so ist hiermit auch das Räthsel der dreyfachen Meta in
-dem Tempel zu Paphos gelöst. In der profanen griechischen Welt wurden
-aus den drey Mond - Moiren der morgenländischen Mysterien die drey Parcen,
-welche in getheilter Arbeit des Lebens Faden anknüpfen, spinnen und ab-
-schneiden 17). Was den Orphischen Namen der Moiren Leukostoli betrift,
-fo liefs er sich vielleicht in Beziehung mit der Paphischen Meta setzen, von wel-
-cher oben gesagt worden, dass man sie mit einer weissen Pyramide vergli-
-chen. Ob des Homerischen Hymnus (in Mcur. 549 ff.) seltsam gestaltete
-Moiren, deren Haupt mit weissem Mehl bestreut ist und Catulls Parcen mit
-schneeweissem Scheitel hieher gehören, mögen andre entscheiden. Vielleicht
-aber ist nicht überflüssig, bey den Urnenartig gestalteten Paphischen Moiren
-an die zwey Urnen zu erinnern, die, nach Homer (Il. 24, 527 f.), in Zeus
-Pallast stehen, die eine mit beglückenden Gaben, die andre mit Uebeln an-
-gefüllt.
-Zur Bestätigung der von den Paphischen drey Kegeln gegebnen Erklärung
-diene ferner, dass sowohl drey Aphroditen als drey Schicksals - Göttinnen,
-unter den Namen Fata, Fortunae, neben einander in den Werken der alten
-Kunst vorkommen. In Theben standen, dem Paufanias (9, 16, 2) zufolge,
-drey hölzerne Bilder der Aphrodite, deren Gestalt nicht angegeben wird, die
-aber so alt waren, dass man sie von der Harmonia herleitete. Auch sie waren
-also Fremdlinge phönicischen Ursprungs und mit der Paphia verwandt. Dafs
-die eine Urania, die andre Pandemos, die dritte Apostrophia genannt wird,
-ist wol jüngere,Deutung alter namenloser Venus - Bilder, wie Heinrich (de
-Hermaphr. p. 28 f.) vermuthet, und dafsselbe kann auch von den drey Bild-
-faulen im Tempel der Aphrodite zu Megalopolis in Arkadien gefagt werden,
-,,deren eine (sagt Pausan. 8,32, 1) man Urania, die andre Pandemos nannte,
-der dritten aber gaben sie keinen Beynamen".
-3
+Um aber wieder zu den drei Paphischen Kegeln einzulenken, behält wol diejenige Ansicht das meiste für sich, nach welcher eine und dieselbe Gottheit unter verschiedenen Gesichtspunkten gemeint ist, Eins in Drei. Diese Dreieinigkeit nun charakterisirte die Sternen-Königin oder Aphrodite als Schicksal, das unter drei Schwestern, die Moiren oder Parcen verteilt war, wie, nach Eckhels Winken, sehr schön von Heinrich (de Hermaphroditis p. 25 ff.) ausgeführt worden. Dass man aber Aphrodite den Moiren zugezählt habe, davon gibt ausdrückliches Zeugniss des Pausanias (1, 19, 2) Erzählung, dass in den Gärten zu Athen eine uralte viereckte Herme befindlich gewesen, deren Inschrift die himmlische Aphrodite als die älteste der Moiren bezeichnet habe.* Nicht nur als allgewaltige Natur-Göttin kam sie zu der Würde, die Schicksale in ihrer Hand zu haben, (Heyne de sacerdot. Comano p. 113) sondern auch als Urania oder Sternen-Königin, in so fern das Morgenland den Grund zu den Abwechselungen und Schicksalen des Menschen-Lebens von den Gestirnen, vorzüglich von dem Monde ableitet, der dann wiederum, im Sinne der Weisen aus Morgenlande, mit der Aphrodite Eins ist (vgl. Manso mythol. Versuche S. 33 f.). Wenn daher in den Orphischen Mysterien* die drei Moiren auf Perioden des Mondlaufs gedeutet wurden, nemlich den ersten Tag des Monats oder den Neumond, den funfzehnten und den dreissigsten, die Orpheus wegen des Mondlichts Leukostoli oder die Göttinnen mit der weissen Stola nannte: so ist hiermit auch das Räthsel der dreifachen Meta in dem Tempel zu Paphos gelöst. In der profanen griechischen Welt wurden aus den drei Mond-Moiren der morgenländischen Mysterien die drei Parcen, welche in geteilter Arbeit des Lebens Faden anknüpfen, spinnen und abschneiden.* Was den Orphischen Namen der Moiren Leukostoli betrift, so liess er sich vielleicht in Beziehung mit der Paphischen Meta setzen, von welcher oben gesagt worden, dass man sie mit einer weissen Pyramide verglichen. Ob des Homerischen Hymnus (in Mcur. 549 ff.) seltsam gestaltete Moiren, deren Haupt mit weissem Mehl bestreut ist und Catulls Parcen mit schneeweissem Scheitel hieher gehören, mögen andre entscheiden. Vielleicht aber ist nicht überflüssig, bei den Urnenartig gestalteten Paphischen Moiren an die zwei Urnen zu erinnern, die, nach Homer (Il. 24, 527 f.), in Zeus Pallast stehen, die eine mit beglückenden Gaben, die andre mit Uebeln angefüllt.
 
+*)
 
-Der Begriff von den Moiren oder Schicksals-Göttinnen wurde auch auf
-die Tyche oder Fortuna übergetragen und diese mit jenen amalgamirt. In
-einer andern Schrift über die Münzen von Rhodos wird sich Gelegenheit fin-
-den von dem weitverbreiteten Symbol der Schicksals - Göttin oder Tyche zu
-handeln, die gewöhnlich mit dem Horn des Segens in der einen und dem
-Steuer in der andern Hand vorgestellt wurde. Pindaros (Fragm. inc. 31 p. 95
-Heyn. Ausg.) schreibt ihr ein doppeltes Steuer-Ruder zu. Und Paufanias
-(7, 26, 3) erzählt, in einem Tempel zu Aegira in Achaia stehe ein Bild der
-Tyche mit dem Horn der Amalthea, und darneben der geflügelte Eros, an-
-zuzeigen, dass auch in der Liebe das Glück mehr als Schönheit vermöge.
-„Ich bin daher, fährt Paufanias fort, der Meinung des Pindaros, dass Tyche
-eine der Moiren sey und dass sie mehr als ihre Schwestern vermöge". Nun
-wurden aber auch diese Glücksgöttinnen oder Fata oft in der Dreyzahl vorge-
-hellt, wie auf einer Münze Diokletians im Gothaischen Kabinet, welche Liebe
-(Gotha numar. p. 75) abgebildet hat, mit der Umschrift: FATIS VICTRI-
-CIBVS. In Rom hatten tria Fata ihren eignen Tempel. Ganz besonders aber
-gehört ein erhabnes Werk in Silber aus den Herkulanischen Alterthümern (T.5
-p. 263 der grossen Ital. Ausg., T. 4 t. 4 d. Parif. Ausg. v. Piranefi) hieher, worauf
-die drey Schicksals - oder Glücks-Göttinnen in der Stola mit Fruchthorn und
-Steuer -Ruder und dem Scheffel auf demHaupt unter ganz einfachen Hallen, die
-dem leichten Paphischen Tempel sehr ähneln, stehen und den halben Mond
-und die Sonne neben fich haben, wie beides die Paphia in ihrem Tempel über
-fich hat.
-Wenden wir uns itzt von den Paphischen Kegeln zu den Umgebungen,
-unter welchen wir fie aufgestellt sehen. Schon Tacitus macht auf die beson-
-dre Bauart des Tempels zu Paphos aufmerksam, und in der That, so vielerley
-Tempel auf alten Kunstwerken und namentlich auf Münzen vorgestellt werden,
-so wenige gibt es, die diesem auch nur ähnlich find. Zwar dürfen wir die
+*)
 
+*)
 
-verständigen Bemerkungen Stieglitz'ens (Archäol. d. Baukunft 2, 46 ff.) nicht
-aus der Acht lassen, dafs wir durch Münzen leicht zu falschen Vorstellungen
-von der Bauart alter Tempel verleitet werden können, indem die Stämpel.
-Schneider nicht immer mit den Grundfatzen der Baukunst bekannt waren, oder
-auch, des engbegränzten Raums halber, nur Theile des Tempel- Gebäudes
-vorstellten, etwa nur die Celle, Säulen wegliessen, um das im Tempel auf-
-gestellte Bildniss sichtbar zu machen u. f. w. Da wir indess beym Paphischen
-Tempel eine Art von Typus finden, der sich durch alle noch so mannichfaltig
-modificirte Abbildungen hindurch zieht, und erhält, und da dieser Tempel
-weit und breit bekannt war: so dürfen wir uns schon, ohne grosse Gefahr der
-Selbsttäuschung, der Wahrhaftigkeit der Darstellung im Ganzen versichert halten.
-Man scheint den Tempel selbst, nach den alten Bildwerken zu schliessen, im
-Laufe der Zeiten erweitert und verschönert zu haben, ohne doch das Wesent-
-liche seiner ersten Anlage zu verlaffen. Den Tempel zu Askalon, welcher der
-Prototyp des Paphischen war, stellt keine Münze vor. In Form und Rohheit
-hat mit dem Paphischen Tempel der der Venus in Karthago, also auch der
-Phönicierin, einige Analogie. In einer Abbildung desselben bey Pellerin (Rec.
-T. 3 t. 88, 9) scheinen einige ganz dünne Säulen statt der Statuen in den
-Tempel-Hallen daselbst aufgestellt gewesen zu seyn; vergleicht man aber da-
-mit die Mionnet'schen Schwefel und die Abbildungen in Pembrock (P. 2 t. 89,
-8.9), fo wird man inne, dass es Gitter sind, durch welche die Zwischen-
-Räume der Säulen-Hallen verschlossen werden. Nicht sehr abweichend von
-letzterm Tempel ist die Bauart eines auf Alexandrinischen Münzen bey Zoëga
-(t. 8, 19.20), in deren Einer in der Mitte eine Meta steht. Auch eine Münze
-von der Stadt Aelia Capitolina bey Pellerin (Rec. T. 3 t. 135, 9) verdient ei-
-niger Aehnlichkeit wegen hieher gezogen zu werden, in deren Tempel-Mitte
-ein kugliger Stein, mit dem Mond darüber, der Astarte oder Dea Syria ver-
-muthlich geltend, abgebildet ist.
+Zur Bestätigung der von den Paphischen drei Kegeln gegebnen Erklärung diene ferner, dass sowohl drei Aphroditen als drei Schicksals-Göttinnen, unter den Namen Fata, Fortunae, neben einander in den Werken der alten Kunst vorkommen. In Theben standen, dem Pausanias (9, 16, 2) zufolge, drei hölzerne Bilder der Aphrodite, deren Gestalt nicht angegeben wird, die aber so alt waren, dass man sie von der Harmonia herleitete. Auch sie waren also Fremdlinge phönicischen Ursprungs und mit der Paphia verwandt. Dass die eine Urania, die andre Pandemos, die dritte Apostrophia genannt wird, ist wol jüngere Deutung alter namenloser Venus-Bilder, wie Heinrich (de Hermaphr. p. 28 f.) vermuthet, und dasselbe kann auch von den drei Bildsäulen im Tempel der Aphrodite zu Megalopolis in Arkadien gefagt werden, „deren eine (sagt Pausan. 8, 32, 1) man Urania, die andre Pandemos nannte, der dritten aber gaben sie keinen Beinamen.“
 
+Der Begriff von den Moiren oder Schicksals-Göttinnen wurde auch auf die Tyche oder Fortuna übergetragen und diese mit jenen amalgamirt. In einer andern Schrift über die Münzen von Rhodos wird sich Gelegenheit finden von dem weitverbreiteten Symbol der Schicksals-Göttin oder Tyche zu handeln, die gewöhnlich mit dem Horn des Segens in der einen und dem Steuer in der andern Hand vorgestellt wurde. Pindaros (Fragm. inc. 31 p. 95 Heyn. Ausg.) schreibt ihr ein doppeltes Steuer-Ruder zu. Und Pausanias (7, 26, 3) erzählt, in einem Tempel zu Aegira in Achaia stehe ein Bild der Tyche mit dem Horn der Amalthea, und darneben der geflügelte Eros, anzuzeigen, dass auch in der Liebe das Glück mehr als Schönheit vermöge. „Ich bin daher, fährt Pausanias fort, der Meinung des Pindaros, dass Tyche eine der Moiren sei und dass sie mehr als ihre Schwestern vermöge.“ Nun wurden aber auch diese Glücksgöttinnen oder Fata oft in der Dreizahl vorgestellt, wie auf einer Münze Diokletians im Gothaischen Kabinet, welche Liebe (Gotha numar. p. 75) abgebildet hat, mit der Umschrift: FATIS VICTRICIBVS. In Rom hatten tria Fata ihren eignen Tempel. Ganz besonders aber gehört ein erhabnes Werk in Silber aus den Herkulanischen Alterthümern (T. 5 p. 263 der grossen Ital. Ausg., T. 4 t. 4 d. Paris. Ausg. v. Piranesi) hieher, worauf die drei Schicksals- oder Glücks-Göttinnen in der Stola mit Fruchthorn und Steuer-Ruder und dem Scheffel auf dem Haupt unter ganz einfachen Hallen, die dem leichten Paphischen Tempel sehr ähneln, stehen und den halben Mond und die Sonne neben sich haben, wie beides die Paphia in ihrem Tempel über sich hat.
 
-Fassen wir das Paphische Tempel - Gebäude nach seinen verschiednen
-Abbildungen genauer ins Auge, so erblicken wir zwar darin ein Fortschreiten
-vom Rohen zum Gebildetern, vom Einfachen zum Zusammengesetztern, aber
-in allen doch die absichtlich beybehaltne Einfalt der uralten Form. Dieses
-erstreckt sich bis auf den Stoff des Gebäudes, das in den meisten Abbildungen
-blos aus hölzernen Balken und Stangen zusammengesetzt zu seyn scheint. Die
-beiden vertikalen Haupt- Balken sind offenbar rohe und unbehauene Baum-
-Stämme (man sehe z. B. I, 3. 4. 5. 10. 11. 12. 14.), so auch die Architraven
-der Seiten-Hallen oder Nischen I, 12. 14., selbst der Grund - Balken oder
-die Basis, auf welcher das Gebäude ruht I, 10. Es findet sich demnach hier
-eines der seltnen Beyspiele von hölzernen Tempeln (vergl. Winkelmann über
-die Baukunst und Stieglitz Archäol. d. Bauk. I, 67 f.). Der Stamm des Ge-
-baudes war aber, wie man sich aus den einfachsten Abbildungen vorstellen
-kann 18), die Mittel-Kapelle oder Celle, d. h. die zwey vertikalen Balken,
-die von zwey Quer-Balken zusammen gehalten werden; welche zusammen
-das eigentliche Tempel - Haus bilden, in dem die Meta der Paphia steht.
-Diese so aufgerichteten Balken, welche mehr den Namen eines Gestelles
-oder Gerüstes als eines Tempel - Gebäudes verdienen, erinnern an die Kapelle
-oder das Grabmal der Dioskuren in Sparta, welches eine mit dem Paphischen
-Tempel, wie er in seiner ersten Grundlage gewesen seyn muss, gleiche Ein
-richtung gehabt zu haben scheint.,,Die Spartiaten, sagt Plutarchus (zu An-
-fang der Abh. von der Bruder-Liebe T. 2 P. 2 p. 949 Wytt.), nennen die
-alten Bildsäulen der Dioskuren Dokana; es find aber zwey parallele Balken
-mit zwey Quer - Balken vereinigt, und es scheint der Bruder - Liebe dieser
-Götter die unzertrennliche Vereinigung im Bild angemessen zu seyn." Rohe
-und ungehobelte Balken, mussten im grauen Alterthum oft die Stelle von
-Götter - Bildern vertreten (f. Bentl. z. Callim.fr. 105 p. 478 und des daf. von
-Ernesti angeführten Wesseling's Probabilia). Die zwey Quer-Balken der Do-
+Wenden wir uns itzt von den Paphischen Kegeln zu den Umgebungen, unter welchen wir sie aufgestellt sehen. Schon Tacitus macht auf die besondre Bauart des Tempels zu Paphos aufmerksam, und in der Tat, so vielerlei Tempel auf alten Kunstwerken und namentlich auf Münzen vorgestellt werden, so wenige gibt es, die diesem auch nur ähnlich sind. Zwar dürfen wir die verständigen Bemerkungen Stieglitz'ens (Archäol. d. Baukunst 2, 46 ff.) nicht aus der Acht lassen, dass wir durch Münzen leicht zu falschen Vorstellungen von der Bauart alter Tempel verleitet werden können, indem die Stämpel-Schneider nicht immer mit den Grundfätzen der Baukunst bekannt waren, oder auch, des engbegränzten Raums halber, nur Teile des Tempel-Gebäudes vorstellten, etwa nur die Celle, Säulen wegliessen, um das im Tempel aufgestellte Bildniss sichtbar zu machen u. s. w. Da wir indess beim Paphischen Tempel eine Art von Typus finden, der sich durch alle noch so mannichfaltig modificirte Abbildungen hindurch zieht, und erhält, und da dieser Tempel weit und breit bekannt war: so dürfen wir uns schon, ohne grosse Gefahr der Selbsttäuschung, der Wahrhaftigkeit der Darstellung im Ganzen versichert halten. Man scheint den Tempel selbst, nach den alten Bildwerken zu schliessen, im Laufe der Zeiten erweitert und verschönert zu haben, ohne doch das Wesentliche seiner ersten Anlage zu verlassen. Den Tempel zu Askalon, welcher der Prototyp des Paphischen war, stellt keine Münze vor. In Form und Rohheit hat mit dem Paphischen Tempel der der Venus in Karthago, also auch der Phönicierin, einige Analogie. In einer Abbildung desselben bei Pellerin (Rec. T. 3 t. 88, 9) scheinen einige ganz dünne Säulen statt der Statuen in den Tempel-Hallen daselbst aufgestellt gewesen zu sein; vergleicht man aber damit die Mionnet'schen Schwefel und die Abbildungen in Pembrock (P. 2 t. 89, 8. 9), so wird man inne, dass es Gitter sind, durch welche die Zwischen-Räume der Säulen-Hallen verschlossen werden. Nicht sehr abweichend von letzterm Tempel ist die Bauart eines auf Alexandrinischen Münzen bei Zoëga (t. 8, 19. 20), in deren Einer in der Mitte eine Meta steht. Auch eine Münze von der Stadt Aelia Capitolina bei Pellerin (Rec. T. 3 t. 135, 9) verdient einiger Ähnlichkeit wegen hieher gezogen zu werden, in deren Tempel-Mitte ein kugliger Stein, mit dem Mond darüber, der Astarte oder Dea Syria vermutlich geltend, abgebildet ist.
 
+Fassen wir das Paphische Tempel-Gebäude nach seinen verschiednen Abbildungen genauer ins Auge, so erblicken wir zwar darin ein Fortschreiten vom Rohen zum Gebildetern, vom Einfachen zum Zusammengesetztern, aber in allen doch die absichtlich beibehaltne Einfalt der uralten Form. Dieses erstreckt sich bis auf den Stoff des Gebäudes, das in den meisten Abbildungen blos aus hölzernen Balken und Stangen zusammengesetzt zu sein scheint. Die beiden vertikalen Haupt-Balken sind offenbar rohe und unbehauene Baum-Stämme (man sehe z. B. 1., 3. 4. 5. 10. 11. 12. 14.), so auch die Architraven der Seiten-Hallen oder Nischen 1., 12. 14., selbst der Grund-Balken oder die Basis, auf welcher das Gebäude ruht 1., 10. Es findet sich demnach hier eines der seltnen Beispiele von hölzernen Tempeln (vergl. Winkelmann über die Baukunst und Stieglitz Archäol. d. Bauk. 1., 67 f.). Der Stamm des Gebäudes war aber, wie man sich aus den einfachsten Abbildungen vorstellen kann,* die Mittel-Kapelle oder Celle, d. h. die zwei vertikalen Balken, die von zwei Quer-Balken zusammen gehalten werden; welche zusammen das eigentliche Tempel-Haus bilden, in dem die Meta der Paphia steht.
 
-kana waren vielleicht blos wie bey dem Paphischen Tempel da, den langen
-Haupt-Balken Haltung und Festigkeit zu geben, wenn man nicht die unge-
-mein sinnreiche Vermuthung vorziehen will, welche mir von Herrn Geh. Rath
-Uhden in Berlin mitgetheilt worden, dass die Dokana eine rohe, bildliche Dar-
-stellung zweyer menschlicher Figuren gewesen, die fich umfassen, so dass die
-vertikalen Stangen, die Leiber, die horizontalen aber, die Arme vorgestellt
-hätten. Diese Bilder nun stellten zugleich das Brüder-Paar selbst und ihr Haus
-oder vielmehr ihr Grabmal 19) vor. Es war gar nichts ungewöhnliches im
-frühsten Alterthum, dass Gräber und Tempel mit einander vereinigt waren,
-dass aus Gräbern Tempel entstanden und Tempel wiederum zu Grabmälern ge-
-braucht wurden 2°). Wenn nun das Etymologikum Magnum von diesen Do-
-kana sagt, sie hätten das Ansehen offner Gräber gehabt, so muss sich das
-darauf beziehen, dass dieses Grabmal von keinen Mauern eingeschlossen, mit
-keiner Bedachung versehen war (Hypaithrios) und mehr das Ansehen eines
-offnen Durchgangs als eines Tempels hatte, welches alles gleichfalls auf das
-einfache Gerippe des Paphischen Tempels passt, von welchem auch die merk-
-würdige Nachricht beym Arnobius (6 p. 193 Ende) aus einem ältern Schrift-
-steller vorkommt, Kinyras, König von Paphos, sey mit seiner ganzen Fami-
-milie und mit seiner ganzen Prosapia im Tempel der Paphischen Venus be-
-graben!
-:
-Fahren wir in der Beschreibung der Einzelheiten des Paphischen Tempels
-fort. Zu den einfachsten Darstellungen, welche nichts als das Mittel-Stück
-mit seiner Meta aufzuweisen haben, kommt bald zu beiden Seiten desselben ein
-Leuchter hinzu, der auf mehreren Münzen als zur Ehre der Gottheit brennend
-vorgestellt ist. Statt der Leuchter erscheinen auch nun auf andern Münzen
-zwey Neben-Kegel, denen aber bald eigne Neben-Hallen zu beiden Seiten
-der Celle eingeräumt werden. Eine ganz eigne Beschaffenheit haben diese
-Neben-Hallen auf drey Vespafians - Münzen, die mir nur in Mionnets Abdrücken
+*)
 
+Diese so aufgerichteten Balken, welche mehr den Namen eines Gestelles oder Gerüstes als eines Tempel-Gebäudes verdienen, erinnern an die Kapelle oder das Grabmal der Dioskuren in Sparta, welches eine mit dem Paphischen Tempel, wie er in seiner ersten Grundlage gewesen sein muss, gleiche Einrichtung gehabt zu haben scheint. „Die Spartiaten, sagt Plutarchus (zu Anfang der Abh. von der Bruder-Liebe T. 2 P. 2 p. 949 Wytt.), nennen die alten Bildsäulen der Dioskuren Dokana; es sind aber zwei parallele Balken mit zwei Quer-Balken vereinigt, und es scheint der Bruder-Liebe dieser Götter die unzertrennliche Vereinigung im Bild angemessen zu sein.“ Rohe und ungehobelte Balken, mussten im grauen Altertum oft die Stelle von Götter-Bildern vertreten (s. Bentl. z. Callim. fr. 105 p. 478 und des das. von Ernesti angeführten Wesseling's Probabilia). Die zwei Quer-Balken der Dokana waren vielleicht blos wie bei dem Paphischen Tempel da, den langen Haupt-Balken Haltung und Festigkeit zu geben, wenn man nicht die ungemein sinnreiche Vermutung vorziehen will, welche mir von Herrn Geh. Rath Uhden in Berlin mitgeteilt worden, dass die Dokana eine rohe, bildliche Darstellung zweier menschlicher Figuren gewesen, die sich umfassen, so dass die vertikalen Stangen, die Leiber, die horizontalen aber, die Arme vorgestellt hätten. Diese Bilder nun stellten zugleich das Brüder-Paar selbst und ihr Haus oder vielmehr ihr Grabmal* vor. Es war gar nichts ungewöhnliches im frühsten Altertum, dass Gräber und Tempel mit einander vereinigt waren, dass aus Gräbern Tempel entstanden und Tempel wiederum zu Grabmälern gebraucht wurden.* Wenn nun das Etymologikum Magnum von diesen Dokana sagt, sie hätten das Ansehen offner Gräber gehabt, so muss sich das darauf beziehen, dass dieses Grabmal von keinen Mauern eingeschlossen, mit keiner Bedachung versehen war (Hypaithrios) und mehr das Ansehen eines offnen Durchgangs als eines Tempels hatte, welches alles gleichfalls auf das einfache Gerippe des Paphischen Tempels passt, von welchem auch die merkwürdige Nachricht beim Arnobius (6 p. 193 Ende) aus einem ältern Schriftsteller vorkommt, Kinyras, König von Paphos, sei mit seiner ganzen Famimilie und mit seiner ganzen Prosapia im Tempel der Paphischen Venus begraben!
 
-vorgekommen find, aus denen ich zwey I, 12. 14. vorgestellt habe). Hier
-ist jede der Neben - Hallen durch einen in der Mitte eingezognen Balken in zwey
-Hälften getheilt, deren eine ganz offen, die andre aber unten verschlossen
-oder zugemauert scheint, so dass die Oeffnung oben drüber das Ansehen eines
-viereckigten Fensters erhält. Auf den meisten paphischen Münzen ist der Tempel
-mit einem halbmondförmigen Peribolos oder Vorhof 22) umgeben, dessen Ein-
-fassung aufmehrern als ein Flecht- oder Gitter - Werk und bald ganz geschlossen,
-bald geöffnet erscheint und zwar so, dass die beiden Flügel des Thores nach aussen
-gehen. Innerhalb dieses Vorhofs, mit welchem man sich auch die hintere,
-nicht sichtbare Seite des Tempels umfasst denken mag, sieht man bald Spuren
-von Altären und andern heiligen Geräthschaften, bald allerley Gitterwerk und
-verschiedene Schranken oder Abtheilungen, in welche vermuthlich bey grossen
-Festen das Volk von den opfernden Priestern getrennt und vertheilt war; denn
-es strömte jährlich in feyerlichen Aufzügen eine Menge Volks von beiden
-Geschlechtern aus mehreren Städten zu dem Tempel in Paphos (Meurs. Cypr. 1,
-19 p. 55). Wohl weiss ich, dass man gewöhnlich die auf einigen Münzen an-
-gegebnen Linien und Abtheilungen in denselben fur das Mauerwerk des Unter-
-baues hält, und sie sehen ihm sehr ähnlich; allein vergleiche ich damit die auf
-andern Münzen deutlich ausgedruckten Schranken und nehme ich hinzu, dass
-der Unterbau des Tempels doch unmöglich eine halbkreisförmige Gestalt ge-
-habt haben kann, wie es z. B. nach 1, 7. 13. der Fall gewesen seyn müsste:
-so glaube ich mich mehr berechtigt hier Schranken als Mauern zu sehen, die
-ohnedem zu dem Charakter dieser leichten und luftigen Tempelwenig passen.
-Ausgebildeter und mit mehrern Säulen geschmückt erscheinen einige von die-
-fen Tempeln unter Vespafianus, Titus, Domitianus, deren einer II, 17 nach
-einer Münze des Vespafianus aus Morell. t. 7, 8 gezeichnet worden. Auch
-kann man sich vorstellen, dass, da Kypros mehr als einmal unter den R.
-Kaysern das Missgeschick traf, vom Erdbeben zerstört zu werden (Meurf.
+*)
 
+*)
 
-Cypr. 1, 18), und da Seneka (ep. 91) ausdrücklich sagt: „Wie oft ist Paphos
-in fich selbst zusammengestürzt!" dass, sage ich, nach solchen Niederlagen der
-Tempel der Paphia durch kayserliche Freygebigkeit in einer verschönerten Ge-
-stalt wird hergestellt worden seyn.
-Besonders merkwürdig sind die fich beynahe gleich ausfehenden, hier
-Mionnet's Abdrücken nachgebildeten Münzen von Karakalla (1, 4) und von
-der Julia Domna (I, 5), wegen einer gewissen Eleganz, in der sich das Ganze
-darstellt und wegen einer Merkwürdigkeit, die auf wenig andern 23) gefun-
-den wird. Das ganze Gebäude, oder, wenn auch nicht die Neben-Hallen,
-in welchen hier Kandelabern stehen, doch das Mittel-Gebäude scheint nem-
-lich bedacht zu seyn, wie sich aus den drey Oeffnungen über dem Architrav
-abnehmen lässt, d. h. aus den Zwischen - Tiefen (Metopen), die zwischen den
-Balken, welche oben auf liegend die obere Decke bilden, entstehen. Auf
-diese lässt sich anwenden, was Winkelmann (Anmerk. üb. d. Baukunst d. A. S.
-372 f. im ersten Bd. der Fernowschen Ausg.) scharfsinnig darzuthun sucht, dass
-die Alten diesen Raum zwischen den Balken (Triglyphen) offen gelassen, um
-dem Gebälke Luft zu geben. Indess dringt sich mir der Gedanke auf, dass
-diese schon vom Vitruvius (4, 2 p. 82 Rohde's Ausg.) ihres Anfehens halber
-columbaria genannten Zwischen - Räume im Tempel der Paphia wirklich zu
-Tauben - Schlägen gedient haben mögen, wozu die fowol auf den Neben-Da-
-chern sitzenden stattlichen Tauben als die ganz kleinen die Meta rechts und
-links umflatternden Anlass geben. Selbst in dem Tempelhof sind Spuren halb
-verloschner Tauben vorhanden. Welch'eine wichtige Rolle die Tauben aber im
-Tempel der Paphia gespielt haben müssen, sehen wir daraus, dass sie auf den
-meisten Abbildungen des Paphischen Tempels bald die Meta der Paphia umflie-
-gen, bald auf Neben-Säulen sitzen 24), bald vor dem Tempel herumlaufen.
-Sogar auf der Meta der Paphischen Göttin sitzt I, 6 eine Taube. Eine Münze
-bey Hunter (67, 25) mit der Venus - Büste auf der einen und einem Tauben-
+Fahren wir in der Beschreibung der Einzelheiten des Paphischen Tempels fort. Zu den einfachsten Darstellungen, welche nichts als das Mittel-Stück mit seiner Meta aufzuweisen haben, kommt bald zu beiden Seiten desselben ein Leuchter hinzu, der auf mehreren Münzen als zur Ehre der Gottheit brennend vorgestellt ist. Statt der Leuchter erscheinen auch nun auf andern Münzen zwei Neben-Kegel, denen aber bald eigne Neben-Hallen zu beiden Seiten der Celle eingeräumt werden. Eine ganz eigne Beschaffenheit haben diese Neben-Hallen auf drei Vespasians-Münzen, die mir nur in Mionnets Abdrücken vorgekommen sind, aus denen ich zwei 1., 12. 14. vorgestellt habe.* Hier ist jede der Neben-Hallen durch einen in der Mitte eingezognen Balken in zwei Hälften geteilt, deren eine ganz offen, die andre aber unten verschlossen oder zugemauert scheint, so dass die Öffnung oben drüber das Ansehen eines viereckigten Fensters erhält. Auf den meisten paphischen Münzen ist der Tempel mit einem halbmondförmigen Peribolos oder Vorhof* umgeben, dessen Einfassung aufmehrern als ein Flecht- oder Gitter-Werk und bald ganz geschlossen, bald geöffnet erscheint und zwar so, dass die beiden Flügel des Thores nach aussen gehen. Innerhalb dieses Vorhofs, mit welchem man sich auch die hintere, nicht sichtbare Seite des Tempels umfasst denken mag, sieht man bald Spuren von Altären und andern heiligen Gerätschaften, bald allerlei Gitterwerk und verschiedene Schranken oder Abteilungen, in welche vermutlich bei grossen Festen das Volk von den opfernden Priestern getrennt und verteilt war; denn es strömte jährlich in feierlichen Aufzügen eine Menge Volks von beiden Geschlechtern aus mehreren Städten zu dem Tempel in Paphos (Meurs. Cypr. 1, 19 p. 55). Wohl weiss ich, dass man gewöhnlich die auf einigen Münzen angegebnen Linien und Abteilungen in denselben für das Mauerwerk des Unterbaues hält, und sie sehen ihm sehr ähnlich; allein vergleiche ich damit die auf andern Münzen deutlich ausgedruckten Schranken und nehme ich hinzu, dass der Unterbau des Tempels doch unmöglich eine halbkreisförmige Gestalt gehabt haben kann, wie es z. B. nach 1., 7. 13. der Fall gewesen sein müsste: so glaube ich mich mehr berechtigt hier Schranken als Mauern zu sehen, die ohnedem zu dem Charakter dieser leichten und luftigen Tempel wenig passen. Ausgebildeter und mit mehrern Säulen geschmückt erscheinen einige von diesen Tempeln unter Vespasianus, Titus, Domitianus, deren einer 2., 17 nach einer Münze des Vespasianus aus Morell. t. 7, 8 gezeichnet worden. Auch kann man sich vorstellen, dass, da Kypros mehr als einmal unter den R. Kaisern das Missgeschick traf, vom Erdbeben zerstört zu werden (Meurs. Cypr. 1, 18), und da Seneka (ep. 91) ausdrücklich sagt: „Wie oft ist Paphos in sich selbst zusammengestürzt!“ dass, sage ich, nach solchen Niederlagen der Tempel der Paphia durch kaiserliche Freigebigkeit in einer verschönerten Gestalt wird hergestellt worden sein.
 
+*)
 
+*)
 
-Paar, das auf dem Umschlag gegenwärtiger Schrift der Münze nachgebildet
-worden ist, auf der andern Seite hat die Umschrift ΟΥΥΣ, über welcher viel-
-leicht- der Raum leidets -die Anfangs - Buchstaben der Stadt gestanden ha-
-ben, welche sich ergänzen lassen; ΑΜΑΘΟΥΣ (Vgl. Eckh. D. N. 3, 85 f.)
+Besonders merkwürdig sind die sich beinahe gleich aussehenden, hier Mionnet's Abdrücken nachgebildeten Münzen von Karakalla (1, 4) und von der Julia Domna (1, 5), wegen einer gewissen Eleganz, in der sich das Ganze darstellt und wegen einer Merkwürdigkeit, die auf wenig andern* gefunden wird. Das ganze Gebäude, oder, wenn auch nicht die Neben-Hallen, in welchen hier Kandelabern stehen, doch das Mittel-Gebäude scheint nemlich bedacht zu sein, wie sich aus den drei Öffnungen über dem Architrav abnehmen lässt, d. h. aus den Zwischen-Tiefen (Metopen), die zwischen den Balken, welche oben auf liegend die obere Decke bilden, entstehen. Auf diese lässt sich anwenden, was Winkelmann (Anmerk. üb. d. Baukunst d. A. S. 372 f. im ersten Bd. der Fernowschen Ausg.) scharfsinnig darzutun sucht, dass die Alten diesen Raum zwischen den Balken (Triglyphen) offen gelassen, um dem Gebälke Luft zu geben. Indess dringt sich mir der Gedanke auf, dass diese schon vom Vitruvius (4, 2 p. 82 Rohde's Ausg.) ihres Ansehens halber columbaria genannten Zwischen-Räume im Tempel der Paphia wirklich zu Tauben-Schlägen gedient haben mögen, wozu die sowol auf den Neben-Dächern sitzenden stattlichen Tauben als die ganz kleinen die Meta rechts und links umflatternden Anlass geben. Selbst in dem Tempelhof sind Spuren halbverloschner Tauben vorhanden. Welch'eine wichtige Rolle die Tauben aber im Tempel der Paphia gespielt haben müssen, sehen wir daraus, dass sie auf den meisten Abbildungen des Paphischen Tempels bald die Meta der Paphia umfliegen, bald auf Neben-Säulen sitzen,* bald vor dem Tempel herumlaufen. Sogar auf der Meta der Paphischen Göttin sitzt 1., 6 eine Taube. Eine Münze bei Hunter (67, 25) mit der Venus-Büste auf der einen und einem Tauben-Paar, das auf dem Umschlag gegenwärtiger Schrift der Münze nachgebildet worden ist, auf der andern Seite hat die Umschrift ΟΥΥΣ, über welcher vielleicht --- der Raum leidets --- die Anfangs-Buchstaben der Stadt gestanden haben, welche sich ergänzen lassen; ΑΜΑΘΟΥΣ (Vgl. Eckh. D. N. 3, 85 f.)
+
+*)
+
+*)
+
 Befremden werden die Tauben-Schläge unter dem Tempel-Dache nicht,
 wenn man sich der vielen Beyspiele erinnert, dass die Lieblings-Thiere der
 Götter mit in ihren Tempel - Bezirken verpflegt wurden. So wurden ganze
