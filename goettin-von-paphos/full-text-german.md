@@ -108,146 +108,20 @@ Doch begehre ich die Auslegung Andrer nicht zu bestreiten, die hier neben dem kl
 
 *)
 
-Zwar scheint mit der Vermuthung von dem Tauben - Orakel in Paphos in
-Widerspruch zu stehen, dass, nach Tacitus (Hist. 2, 3.4) ein dortiger Haru
-spex aus den Eingeweiden der Thiere der Götter Sprüche verkündigte; allein
-die „fcientia arsque haruspicum" war nicht von Anfang her in dem Tempel
-geübt, fondern erst später durch den Cilicier Thamiras hereingebracht worden,
-und schliesst auch so wenig den Gebrauch andrer Arten von Orakel-Gebung
-aus, dass man z. B. vom Orakel zu Dodona fünf bis sechferley Weifen erwähnt
-findet.
-:
-Noch Eins bleibt uns übrig in Erwägung zu ziehen. Ausser Sonne und
-Mond, welche gewöhnlich über dem Kegel der Paphia oben angebracht find
-und auf den Sternen-Dienst des Morgen-Landes hinweisen 3°), finden fich
-auf einigen Münzen, vornehmlich I, 2. 3,3, die vertikalen Balken oben mit
-Bändern und einer Art von Hänge-Werk ausgeschmückt, das man für Blu-
-:
-ganz dunliche Saubge
-winde in der abbilinag
-bei Prichte, attrition
-des Venck, p. 50.
+Zwar scheint mit der Vermutung von dem Tauben-Orakel in Paphos in Widerspruch zu stehen, dass, nach Tacitus (Hist. 2, 3. 4) ein dortiger Haruspex aus den Eingeweiden der Tiere der Götter Sprüche verkündigte; allein die „scientia arsque haruspicum“ war nicht von Anfang her in dem Tempel geübt, sondern erst später durch den Cilicier Thamiras hereingebracht worden, und schliesst auch so wenig den Gebrauch andrer Arten von Orakel-Gebung aus, dass man z. B. vom Orakel zu Dodona fünf bis sechserlei Weisen erwähnt findet.
 
+Noch Eins bleibt uns übrig in Erwägung zu ziehen. Ausser Sonne und Mond, welche gewöhnlich über dem Kegel der Paphia oben angebracht sind und auf den Sternen-Dienst des Morgen-Landes hinweisen,* finden sich auf einigen Münzen, vornehmlich 1., 2. 3 [34], die vertikalen Balken oben mit Bändern und einer Art von Hänge-Werk ausgeschmückt, das man für Blumen- oder Laub-Gewinde nehmen kann, womit Tempel und Altäre verziert zu werden pflegten. Indess bei einem ungewöhnlichen Gebäude darf man auch Erklärungen des daran Angebrachten geltend machen, die sonst zu gesucht scheinen könnten. Es ist durch mehrere Beispiele von Lamy (de templo Hierosol. p. 1046) und von de Brosses (Mém. de l'Ac. des Inscr. T. 35 p. 102 ff.) dargetan, dass die Alten bei verschiednen Tempeln und heiligen Plätzen Klingel- und Schellen-Werke, welche vom Winde bewegt tönten, angebracht haben, teils vielleicht um fremde Vögel zu verscheuchen, teils um aus den Tönen Orakel zu ziehen. Ein solches durch den Wind anzuregendes Ketten-Werk mit Granat-Aepfeln befand sich am obersten Ende der beiden Säulen Jachin und Boas; auf ähnliche Weise tönten eherne, Orakel-gebende Becken, welche in Dodona aufgehangen waren; in Clusium in Etrurien war an der Kuppel von des Königs Grab-Gebäude ein Schellen-Geläute von Ketten angebracht, welches weit und breit umher schallte. Es ist also nach dem Angeführten doch wol so unwahrscheinlich nicht, dass das Hängewerk auf dem Tempel der Paphia mehr als ausschmückendes Laubwerk, dass es ein Teil des Orakel-Apparats selbst gewesen.
 
-men- oder Laub - Gewinde nehmen kann, womit Tempel und Altäre verziert
-zu werden pflegten. Indess bey einem ungewöhnlichen Gebäude darf man
-auch Erklärungen des daran Angebrachten geltend machen, die sonst zu ge-
-sucht scheinen könnten. Es ist durch mehrere Beyspiele von Lamy (de templo
-Hierofol. p. 1046) und von de Brosses (Mém. de l' Ac. des Inscr. T. 35 p. 102 ff.)
-dargethan, dass die Alten bey verschiednen Tempeln und heiligen Plätzen
-Klingel- und Schellen - Werke, welche vom Winde bewegt tönten, angebracht
-haben, theils vielleicht um fremde Vögel zu verscheuchen, theils um aus den
-Tönen Orakel zu ziehen. Ein folches durch den Wind anzuregendes Ketten-
-Werk mit Granat-Aepfeln befand sich am obersten Ende der beiden Säulen
-Jachin und Boas; auf ähnliche Weise tönten eherne, Orakel-gebende Becken,
-welche in Dodona aufgehangen waren; in Clusium in Etrurien war an der
-Kuppel von des Königs Grab - Gebäude ein Schellen - Geläute von Ketten ange-
-bracht, welches weit und breit umher schallte. Es ist also nach dem Angeführ-
-ten doch wol so unwahrscheinlich nicht, dass das Hängewerk auf dem Tem-
-pel der Paphia mehr als ausschmückendes Laubwerk, dass es ein Theil des Ora-
-kel-Apparats selbst gewesen.
-Das alte Paphos und sein Heiligthum ist zum Steinhaufen geworden; das
-Orakel der Paphia ist verstummt, aber seine Nachhalle find noch mehrere Seklen
-hindurch zu hören gewesen; der Stein der grossen Natur- und Himmels - Göt-
-tin hat noch Verehrer gefunden und Wunder gethan. Der Sonnen- und
-Mond-Dienst ging bey den Arabern bis auf Mahomeds Zeit; unter und nach
-dem grossen Propheten selbst behauptete er seine Einflüsse und noch leuchtet
-er im türkischen Monde fort. Von einem die Fruchtbarkeit befördernden
-Stein, den die Sarazenen und Ismaëliten als Kopf der Venus angebetet haben
-follen, will ich Tristans eigne Worte (Comm. hist. T. I p. 16) hieher setzen:
-„C'estoit la teste de Venus Genitrice, que les Sarrazins et Ismaëlites adoroient,
-parcequ'ils disoient qu' Abraham s'en estoit heureusement feruy pour habiter
+*)
 
-avec Agar, par le bon fuccez d'une nombreuse lignée, estimant lors (à ce
-qu'ils disoient) que ce fut une pierre commune; comme le remarquent Euthy-
-mius en sa Table des Dogmes de cette nation, et l'autheur Anonyme Grec de
-l'histoire Saracenique". Die Verehrung grofser Steine blieb in Arabien weit
-und lange verbreitet (Zoëga de obeliscis p. 205 f.).
-✓ Noch bis auf heutigen Tag befindet sich im allerheiligsten Tempel zu Mekka
-die Kaaba, ein altes Gebäude der Araber, an dessen Wand ein schwarzer mit
-Silber umfasster Stein eingefasst ist, der ein Idol vor Mahomeds Zeit gewesen
-seyn foll, von ihm aber zur Kebla d. h. zum Gegenstand der Richtung des An-
-gefichts während des Gebetes bestimmt wurde. Die dorthin pilgernden Kara-
-vanen müssen, unter vielen andern Ceremonien, auch fiebenmal um die Kaaba
-herum ziehen, wo sie von dem schwarzen Steine anfangen, welchen sie jedes-
-mal anrühren oder küssen. (Lüdeke Nachr. v. d. türk. Reiche S. 174 f. Hart-
-mann Aufklär. üb. Asien 2 p. 280).
-Versuchen wir es, von dem Ausgeführten die Anwendung auf ein in heili
-ges Dunkel gehülltes Idol eines berühmten Ordens zu machen. Man kennt
-die Hypothesen über den Baphomet der Templer, über welchen zuerft Nicolai
-(in seinem Versuch über die Befchuldigungen, welche dem Tempelherrenorden
-gemacht worden, und über dessen Geheimniss. 2 Bde. Berlin 1782) scharffin
-nige Untersuchungen angestellt hat. Der Durchlauchtigste Herzog von Gotha
-verzeihe mir, wenn ich die eigenthümliche Anficht, die Er von diesem räth-
-felhaften Namen gefasst und deren weitere Entwickelung Er mir aufgetragen
-hat, dem Publikum verrathe, und der Prüfung der Wissenden übergebe.
-Baphomet scheint nichts anders als Paphi meta, der Kegel zu Paphos,
-zu seyn. Schon das Einfache und Ungezwungene in derWort - Ableitung kann
-ein günstiges Vorurtheil für diese Hypothese erregen und die Veränderung des
-B in P kommt um so weniger in Anschlag, als alles, was man von jenem Idol
-weiss, nur auf mündlichen Aussagen beruht, unter denen die Rechtschreibung
+Das alte Paphos und sein Heiligtum ist zum Steinhaufen geworden; das Orakel der Paphia ist verstummt, aber seine Nachhalle sind noch mehrere Seklen hindurch zu hören gewesen; der Stein der grossen Natur- und Himmels-Göttin hat noch Verehrer gefunden und Wunder getan. Der Sonnen- und Mond-Dienst ging bei den Arabern bis auf Mahomeds Zeit; unter und nach dem grossen Propheten selbst behauptete er seine Einflüsse und noch leuchtet er im türkischen Monde fort. Von einem die Fruchtbarkeit befördernden Stein, den die Sarazenen und Ismaëliten als Kopf der Venus angebetet haben sollen, will ich Tristans eigne Worte (Comm. hist. T. 1. p. 16) hieher setzen: „C'estait la teste de Venus Genitrice, que les Sarrazins et Ismaëlites adoraient, parcequ'ils disaient qu'Abraham s'en estait heureusement servi pour habiter avec Agar, par le bon succès d'une nombreuse lignée, estimant lors (à ce qu'ils disaient) que ce fut une pierre commune; comme le remarquent Euthymius en sa Table des Dogmes de cette nation, et l'autheur Anonyme Grec de l'histoire Saracenique.“ Die Verehrung grosser Steine blieb in Arabien weit und lange verbreitet (Zoëga de obeliscis p. 205 f.).
 
+Noch bis auf heutigen Tag befindet sich im allerheiligsten Tempel zu Mekka die Kaaba, ein altes Gebäude der Araber, an dessen Wand ein schwarzer mit Silber umfasster Stein eingefasst ist, der ein Idol vor Mahomeds Zeit gewesen sein soll, von ihm aber zur Kebla d. h. zum Gegenstand der Richtung des Angesichts während des Gebetes bestimmt wurde. Die dortin pilgernden Karavanen müssen, unter vielen andern Ceremonien, auch siebenmal um die Kaaba herum ziehen, wo sie von dem schwarzen Steine anfangen, welchen sie jedesmal anrühren oder küssen. (Lüdeke Nachr. v. d. türk. Reiche S. 174 f. Hartmann Aufklär. üb. Asien 2 p. 280).
 
-fremder Namen gewöhnlich leidet. Bedenkt man, dass es von je und je Sitte
-der geheimen Orden war und ist, Symbole aus fremden und älteren Mysterien
-zu borgen; dass die Templer durch viele Berührungs-Punkte mit den Saraze-
-nen zusammen hingen, bey denen die alten Natur - Gottheiten und Steine noch
-in Ansehen standen; dass dieselben lange auf der Insel Kypros lebten, wo nicht
-alle Sagen und Spuren vom alten Dienst der Paphischen Meta verloschen seyn
-werden: fo wird man es vielleicht so unwahrscheinlich nicht finden, dass sie
-in ihrem Orden eine Paphi meta aufgestellt haben. Auch darf der klaffi-
-sche lateinische Name, obgleich in der barbarischen Zeit, doch nicht so sehr
-befremden, da ja doch viele Geistliche im Orden waren, unter welcher Gattung
-von Menschen sich noch die Kenntniss des Latein und selbst einige Kenntniss
-der Klassiker im Mittel-Alter erhielt. Freylich geben uns die verwirrten
-und fich widersprechenden Aussagen der angeklagten Templer keine so be.
-stimmte Anficht von ihrem Idol, dass es in allen Stücken oder nur in den mei-
-sten mit der Paphischen Meta übereinkommen sollte; aber sie hatten das
-Idol meist nur flüchtig, nur in schreckenden und tauschenden Umgebungen
-gesehen; fie unterhielten nur eine verworrene Vorstellung davon; ja das
-Bild selbst war auch wol nicht mehr ein vollkommen treues Konterfey der
-alten Meta von Paphos; war auch wol nicht in allen Orten fich ganz gleich,
-denn man findet mehrere tragbare Idole erwähnt, die fie in Koffern mit sich
-führten (Nicolai 1,91). Stellen wir nur folgende Data zusammen, welche
-auf einige Verwandtschaft mit der Paphischen Meta leiten können. Dass die
-Templer sich in Kypros des Baphomet bedient, geht durch Ausfagen bey Nico-
-lai S. 91 hervor. Das Idol wird (Nicolai S. 95 Anm.) vom Br. Hamilton co-
-lumna genannt. Seine Gestalt wird als Zerrbild vorgestellt, bald als ein
-blosser Kopf (vermuthlich auf einer Säule oder Kegel), bald als eine ganze
-menschliche Figur; das Geficht weiss; mit grossem Bart; vergoldet und ver-
-filbert; Karfunkel in den leuchtenden Augen; nach andern war das Bild von
-
-Aurichalkum; es wurde Wenigen und nur in den General - Kapiteln gezeigt,
-wo es aus einer mystischen Lade hervorgeholt ward mit den Worten: Sara-
-zin, Alla! Auch wurden die Worte hinzugesetzt, welche beweisen, dass sie
-fich einen alten Orakel - Götzen unter ihrem Baphomet dachten: „Diess ist der
-Freund Gottes, der mit ihm spricht, wenn er will; dankt ihm, dass er euch
-dahin hat kommen lassen, wo ihr seyd". Darauf werfen sich die Templer
-dreymal vor dem Idol nieder und küssen es. Nach andern Aussagen scheinen
-sie sich wiederum den Baphomet als eine erschaffende Natur - Gottheit gedacht
-zu haben, indem sie sagten, man verdanke ihm alle Reichthümer, es mache
-die Bäume blühen und die Erde grünen! (Belege zu dem Allen gibt Nicolai
-und Dupuy Hift. de la Condannation des Templiers). Genug, sie hatten
-wahrscheinlich selbst keine ganz bestimmte und deutliche Vorstellung von dem
-mystischen Bild, das einer frühern Zeit angehörte, das sie aber zunächst wol
-von den Sarazenen überkommen hatten, welches auch der Ausruf Sarazin
-und Alla zu bestätigen scheint. Als Parallele zu diesem wunderbaren Tem-
-pler - Idol vergleiche man die Beschreibung eines seltsamen Orakel-Steines in
-Syrien auf dem Berge Libanon, von dem wir nur folgendes aus Damascius (bey
-Zoëga de obeliscis p. 202 f.) ausheben: Es sey ein Bätylus oder Dämonium
-gewesen von vollkommner Kugel - Gestalt, weiss an Farbe, eine Spanne lang,
-aber bald sich vergrössernd, bald verkleinernd, bemahlt mit zinnoberrothen
-Zeichen (Grammata)!
-t
-1
-
-
-
-
-
-
+Versuchen wir es, von dem Ausgeführten die Anwendung auf ein in heiliges Dunkel gehülltes Idol eines berühmten Ordens zu machen. Man kennt die Hypothesen über den Baphomet der Templer, über welchen zuerst Nicolai (in seinem Versuch über die Beschuldigungen, welche dem Tempelherrenorden gemacht worden, und über dessen Geheimniss. 2 Bde. Berlin 1782) scharfsin nige Untersuchungen angestellt hat. Der Durchlauchtigste Herzog von Gotha verzeihe mir, wenn ich die eigentümliche Ansicht, die Er von diesem rätselhaften Namen gefasst und deren weitere Entwickelung Er mir aufgetragen hat, dem Publikum verrate, und der Prüfung der Wissenden übergebe. Baphomet scheint nichts anders als Paphi meta, der Kegel zu Paphos, zu sein. Schon das Einfache und Ungezwungene in der Wort-Ableitung kann ein günstiges Vorurteil für diese Hypothese erregen und die Veränderung des B in P kommt um so weniger in Anschlag, als alles, was man von jenem Idol weiss, nur auf mündlichen Aussagen beruht, unter denen die Rechtschreibung fremder Namen gewöhnlich leidet. Bedenkt man, dass es von je und je Sitte der geheimen Orden war und ist, Symbole aus fremden und älteren Mysterien zu borgen; dass die Templer durch viele Berührungs-Punkte mit den Sarazenen zusammen hingen, bei denen die alten Natur-Gottheiten und Steine noch in Ansehen standen; dass dieselben lange auf der Insel Kypros lebten, wo nicht alle Sagen und Spuren vom alten Dienst der Paphischen Meta verloschen sein werden: so wird man es vielleicht so unwahrscheinlich nicht finden, dass sie in ihrem Orden eine Paphi meta aufgestellt haben. Auch darf der klassische lateinische Name, obgleich in der barbarischen Zeit, doch nicht so sehr befremden, da ja doch viele Geistliche im Orden waren, unter welcher Gattung von Menschen sich noch die Kenntniss des Latein und selbst einige Kenntniss der Klassiker im Mittel-Alter erhielt. Freilich geben uns die verwirrten und sich widersprechenden Aussagen der angeklagten Templer keine so bestimmte Ansicht von ihrem Idol, dass es in allen Stücken oder nur in den meisten mit der Paphischen Meta übereinkommen sollte; aber sie hatten das Idol meist nur flüchtig, nur in schreckenden und täuschenden Umgebungen gesehen; sie unterhielten nur eine verworrene Vorstellung davon; ja das Bild selbst war auch wol nicht mehr ein vollkommen treues Konterfei der alten Meta von Paphos; war auch wol nicht in allen Orten sich ganz gleich, denn man findet mehrere tragbare Idole erwähnt, die sie in Koffern mit sich führten (Nicolai 1., 91). Stellen wir nur folgende Data zusammen, welche auf einige Verwandtschaft mit der Paphischen Meta leiten können. Dass die Templer sich in Kypros des Baphomet bedient, geht durch Aussagen bei Nicolai S. 91 hervor. Das Idol wird (Nicolai S. 95 Anm.) vom Br. Hamilton columna genannt. Seine Gestalt wird als Zerrbild vorgestellt, bald als ein blosser Kopf (vermutlich auf einer Säule oder Kegel), bald als eine ganze menschliche Figur; das Gesicht weiss; mit grossem Bart; vergoldet und versilbert; Karfunkel in den leuchtenden Augen; nach andern war das Bild von Aurichalkum; es wurde Wenigen und nur in den General-Kapiteln gezeigt, wo es aus einer mystischen Lade hervorgeholt ward mit den Worten: Sarazin, Alla! Auch wurden die Worte hinzugesetzt, welche beweisen, dass sie sich einen alten Orakel-Götzen unter ihrem Baphomet dachten: „Diess ist der Freund Gottes, der mit ihm spricht, wenn er will; dankt ihm, dass er euch dahin hat kommen lassen, wo ihr seid.“ Darauf werfen sich die Templer dreimal vor dem Idol nieder und küssen es. Nach andern Aussagen scheinen sie sich wiederum den Baphomet als eine erschaffende Natur-Gottheit gedacht zu haben, indem sie sagten, man verdanke ihm alle Reichthümer, es mache die Bäume blühen und die Erde grünen! (Belege zu dem Allen gibt Nicolai und Dupuy Hist. de la Condannation des Templiers). Genug, sie hatten wahrscheinlich selbst keine ganz bestimmte und deutliche Vorstellung von dem mystischen Bild, das einer frühern Zeit angehörte, das sie aber zunächst wol von den Sarazenen überkommen hatten, welches auch der Ausruf Sarazin und Alla zu bestätigen scheint. Als Parallele zu diesem wunderbaren Templer-Idol vergleiche man die Beschreibung eines seltsamen Orakel-Steines in Syrien auf dem Berge Libanon, von dem wir nur folgendes aus Damascius (bei Zoëga de obeliscis p. 202 f.) ausheben: Es sei ein Bätylus oder Dämonium gewesen von vollkommner Kugel-Gestalt, weiss an Farbe, eine Spanne lang, aber bald sich vergrössernd, bald verkleinernd, bemahlt mit zinnoberroten Zeichen (Grammata)!
 
 Anmerkungen.
+
 1) Ueber die grosse Natur - Göttin, welche vielfältig an Namen, aber Eine dem Begriff
 nach war, haben nach Seldenus unfre neuern Mythologen, Heyne, Böttiger, Heinrich,
 Creuzer, Wagner u. a. m. lichtvollere Ansichten verbreitet. Vorzüglich gebührt hier eine
