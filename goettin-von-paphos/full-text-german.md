@@ -96,48 +96,18 @@ Besonders merkwürdig sind die sich beinahe gleich aussehenden, hier Mionnet's A
 
 *)
 
-Befremden werden die Tauben-Schläge unter dem Tempel-Dache nicht,
-wenn man sich der vielen Beyspiele erinnert, dass die Lieblings-Thiere der
-Götter mit in ihren Tempel - Bezirken verpflegt wurden. So wurden ganze
-Heerden von Pfauen im Haine der Here zu Samos gehalten (f. Voss mythol.
-Briefe 2, 116 f.) *); im Tempel der Syrischen Göttin zu Heliopolis befanden
-sich unter allerhand Thieren auch zahme Adler (Lucia. §. 41); ja es scheinen
-(§. 54) auch heilige Tauben daselbst gehalten worden zu seyn. Sicher stammte
-der in dem Dienst der Aphrodite so ausgebreitete Tauben-Verkehr (f. Voss
-myth. Brr. 2, 88-90) aus Syrien oder Phönicien her, wo die Taube heilig
-gehalten, und mit der Syrischen Göttin in Verbindung gesetzt wurde; und
-auf den Münzen von Askalon, von wannen der Tempel der Paphia unmittel-
-bar abgeleitet wird, steht die Taube der Aphrodite zur Seite 25). Ja es findet
-hier wohl gar ein entfernter Zusammenhang mit den Dodonäischen und Liby'-
-schen Orakel-Tauben statt. In Eryx nemlich in Sicilien war der Tempel der
-Aphrodite - vermuthlich auch ein Sprössling von Phönicien - mit einer
-Menge Tauben umgeben, die, nach Aelians (H. N. 4, 2) Erzählung, jährlich
-einmal verschwanden, welches man als eine Abreise der Venus mit ihren Tau-
-den nach Libyen betrachtete, die von den Einwohnern unter dem Namen Ana-
-gogia festlich begangen ward. Nach Verlauf von neun Tagen sieht man die
-Tauben aus dem Liby'schen Meer zurückfliegen und man feyert ihre Heimkehr
-unter dem Namen Katagogia. Weist diese Sage nicht auf eine Heimath der
-Tauben in Libyen zurück und erinnert sie nicht an die prophetischen Tauben,
-die aus dem ägyptischen Theben ausflogen, die eine nach Dodona, das dor-
-tige Orakel zu stiften, die andre nach Libyen, wo e das Orakel des Jupiter
+Befremden werden die Tauben-Schläge unter dem Tempel-Dache nicht, wenn man sich der vielen Beispiele erinnert, dass die Lieblings-Tiere der Götter mit in ihren Tempel-Bezirken verpflegt wurden. So wurden ganze Heerden von Pfauen im Haine der Here zu Samos gehalten (s. Voss mythol. Briefe 2, 116 f.); im Tempel der Syrischen Göttin zu Heliopolis befanden sich unter allerhand Tieren auch zahme Adler (Lucia. §. 41); ja es scheinen (§. 54) auch heilige Tauben daselbst gehalten worden zu sein. Sicher stammte der in dem Dienst der Aphrodite so ausgebreitete Tauben-Verkehr (s. Voss myth. Br. 2, 88-90) aus Syrien oder Phönicien her, wo die Taube heilig gehalten, und mit der Syrischen Göttin in Verbindung gesetzt wurde; und auf den Münzen von Askalon, von wannen der Tempel der Paphia unmittelbar abgeleitet wird, steht die Taube der Aphrodite zur Seite.* Ja es findet hier wohl gar ein entfernter Zusammenhang mit den Dodonäischen und Liby'schen Orakel-Tauben statt. In Eryx nemlich in Sicilien war der Tempel der Aphrodite --- vermutlich auch ein Sprössling von Phönicien --- mit einer Menge Tauben umgeben, die, nach Aelians (H. N. 4, 2) Erzählung, jährlich einmal verschwanden, welches man als eine Abreise der Venus mit ihren Tauden nach Libyen betrachtete, die von den Einwohnern unter dem Namen Anagogia festlich begangen ward. Nach Verlauf von neun Tagen sieht man die Tauben aus dem Liby'schen Meer zurückfliegen und man feiert ihre Heimkehr unter dem Namen Katagogia. Weist diese Sage nicht auf eine Heimat der Tauben in Libyen zurück und erinnert sie nicht an die prophetischen Tauben, die aus dem ägyptischen Theben ausflogen, die eine nach Dodona, das dortige Orakel zu stiften, die andre nach Libyen, wo sie das Orakel des Jupiter Ammon zu errichten befahl?* War nicht selbst Venus oder Dione eine Tempel-Genossin des Orakel-Gottes in Dodona? Genug, aus dem Geschlecht jener berühmten Orakel-Tauben scheinen auch die heiligen Tauben der Paphia gewesen zu sein und der Göttin nicht blos zum Spielzeug* sondern als weissagende Vögel bei ihrem berühmten Orakel gedient zu haben. Ja in 1., 7 liess sich sogar der Paphische Priester oder Hypophet erkennen, der die Orakel der Taube, die er auf der Hand hält, auslegt, ein andrer Tiresias, von dem es beim Äschylos* heisst:
 
+Es saget uns der Seher, der die Vögel pflegt,  
+Dess Ohr und Geist beachtet sonder Feuer-Flamm'  
+Orakel gebende Vögel mit trugloser Kunst.
 
+Doch begehre ich die Auslegung Andrer nicht zu bestreiten, die hier neben dem kleinen, wie es scheint, tragbaren Tempel* der Paphia den Zeus mit dem Adler erblicken, da auch Zeus Serapis vor einem ähnlichen kleinen Tempel der Paphia sitzend auf der Gemme 2., 16 vorgestellt ist.
 
-Ammon zu errichten befahl 26)? War nicht selbst Venus oder Dione eine
-Tempel-Genoffin des Orakel-Gottes in Dodona? Genug, aus dem Geschlecht
-jener berühmten Orakel - Tauben scheinen auch die heiligen Tauben der Paphia
-gewesen zu seyn und der Göttin nicht blos zum Spielzeug 27) sondern als weif-
-sagende Vögel bey ihrem berühmten Orakel gedient zu haben. Ja in I, 7 liefs
-sich sogar der Paphische Priester oder Hypophet erkennen, der die Orakel der
-Taube, die er auf der Hand hält, auslegt, ein andrer Tirefias, von dem es
-beym Aefchylos 28) heisst:
-Es faget uns der Seher, der die Vögel pflegt,
-Dess Ohr und Geist beachtet fonder Feuer - Flamm'
-Orakel gebende Vögel mit truglofer Kunst.
-Doch begehre ich die Auslegung Andrer nicht zu bestreiten, die hier ne-
-ben dem kleinen, wie es scheint, tragbaren Tempel 29) der Paphia den Zeus
-mit dem Adler erblicken, da auch Zeus Serapis vor einem ähnlichen kleinen
-Tempel der Paphia sitzend auf der Gemme II, 16 vorgestellt ist.
+*)
+
+*)
+
 Zwar scheint mit der Vermuthung von dem Tauben - Orakel in Paphos in
 Widerspruch zu stehen, dass, nach Tacitus (Hist. 2, 3.4) ein dortiger Haru
 spex aus den Eingeweiden der Thiere der Götter Sprüche verkündigte; allein
