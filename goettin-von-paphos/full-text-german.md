@@ -122,78 +122,55 @@ Versuchen wir es, von dem Ausgeführten die Anwendung auf ein in heiliges Dunkel
 
 Anmerkungen.
 
-1) Ueber die grosse Natur - Göttin, welche vielfältig an Namen, aber Eine dem Begriff
-nach war, haben nach Seldenus unfre neuern Mythologen, Heyne, Böttiger, Heinrich,
-Creuzer, Wagner u. a. m. lichtvollere Ansichten verbreitet. Vorzüglich gebührt hier eine
-ehrende Meldung der reichhaltigen Heynischen Vorlesung de facerdotio Comanensi
-omninoque de religionum cis et trans Taurum confenfione, welche un-
-längst im 16ten Bande der Commentatt. foc. reg. Gotting. erschienen ist.
-1
-2) Heyne hat in den Gött. gel. Anz. 1807 St. 203 eine Untersuchung hierüber einge-
-leitet, welche Levezow in der Schrift über die Mediceische und die Knidische Venus Berl,
-1808 durch besondre Erörterung der Frage: In wie fern find auf den Münzen des
-Alterthums gültige Abbildungen ehemals berühmter und ausgezeich-
-neter Kunstwerke enthalten S. 46ff, weiter ausgeführt hat.
-3) Ich habe mich dabey des Steindrucks, der zu Umrissen dieser Art so sehr geeig
-net ist, bedient, da mir der Herr Hauptmann v. Schlotheim in Gotha, der sein Talent
-und seinen Kunstfleiss auf die Ausübung dieser schätzbaren Erfindung zu verwenden an-
-fängt, in Gemeinschaft mit dem jüngern Hn. Döll, der die Zeichnungen unter meinen
-Augen besorgt hat, dazu die Hand bot. Die meisten Münzen waren mir im herzogl. Go-
-thaischen Münz - Kabinet theils selbst theils in Mionnet's Schwefel - Abdrücken vor Augen,
-und nur bey wenigen musste ich mich auf Abbildungen in Münzwerken verlaffen.
-4) Eine reiche Beyspiel-Sammlung bietet Zoëga de obeliscis p. 194 ff. dar. Unter
-diefen kommen auch Sonnen- (Sol Elagabalus) und Mond-Steine (Urania, Mond) vor, die
-vom Himmel herab gefallen waren und die schon ihres Ursprungs halber auch in späterer
-Zeit ihre rohe Ungestalt behielten.
-5) Vgl. z. B. Pausan. 3, 19 und Heyne's Bemerkungen über diese Stelle in den an-
-tiquar. Auffätzen St. 1 S. 71 f.
-6) Curtius 4, 7, 23 gibt, wie die Alten der Paphierin, so dem Orakelgott Ammon in
-Libyen die Nabel - Gestalt: umbilico maxime fimiliselt habitus: welches auch von
-einem rundlichen, Hermenartigen Stein zu verstehen seyn wird, ähnlich dem Bildniss Ammons
-in Megalopolis in Arkadien, das Paufanias 8, 32, I mit den viereckten Hermen vergleicht,
+*) Über die grosse Natur-Göttin, welche vielfältig an Namen, aber Eine dem Begriff nach war, haben nach Seldenus unsre neuern Mythologen, Heyne, Böttiger, Heinrich, Creuzer, Wagner u. a. m. lichtvollere Ansichten verbreitet. Vorzüglich gebührt hier eine ehrende Meldung der reichhaltigen Heynischen Vorlesung de sacerdotio Comanensi omninoque de religionum cis et trans Taurum consensione, welche unlängst im 16ten Bande der Commentatt. soc. reg. Gotting. erschienen ist.
 
+*) Heyne hat in den Gött. gel. Anz. 1807 St. 203 eine Untersuchung hierüber eingeleitet, welche Levezow in der Schrift über die Mediceische und die Knidische Venus Berl. 1808 durch besondre Erörterung der Frage: In wie fern sind auf den Münzen des Alterthums gültige Abbildungen ehemals berühmter und ausgezeichneter Kunstwerke enthalten S. 46 ff. weiter ausgeführt hat.
 
-und von dem er sagt, dass es Widder. Hörner am Kopf habe. Oder dachte sich Curtius den
-Libyschen Gott in Gestalt eines Ammons - Horns? Es wäre doch so unnatürlich nicht, wenn
-ihm, dem Gott der verwickelten und künstlich gedrehten (λοξά) Orakel - Sprüche, die Phöni-
-cier, durch die er bekannt wurde, eine gedrehte und gewundne Konchylien - Form gege-
-ben hätten, wie sie ihrer Astarte die Dionaea oder Venus - Muschel als Sinnbild beygelegt
-haben follen (I. Böttiger N. T. Mercur 1805 St. 3 S. 219), worauf fich, wenn man anders
-nöthig hätte so weit zu gehen, auch die Nabel-Gestalt der Paphia zurückführen liefs.
-Merkwürdig ist immer, was nur Joh. Lydus (de menfib. p. 9) berichtet, die Aphrodite sey
-bey den Phöniciern Blatta nach der Purpur - Schnecke genannt worden. Vgl. über das
-Wort blatta Tzschucke's gelehrte Ausführung zu Eutrop. 7, 14 p. 478 f. der grossen
-Ausg. nebit dem Ind. notar. h. v. Feat blattam Tyrus"Jidon.5,48.
-"
+*) Ich habe mich dabei des Steindrucks, der zu Umrissen dieser Art so sehr geeignet ist, bedient, da mir der Herr Hauptmann v. Schlotheim in Gotha, der sein Talent und seinen Kunstfleiss auf die Ausübung dieser schätzbaren Erfindung zu verwenden anfängt, in Gemeinschaft mit dem jüngern Hn. Döll, der die Zeichnungen unter meinen Augen besorgt hat, dazu die Hand bot. Die meisten Münzen waren mir im herzogl. Gothaischen Münz-Kabinet teils selbst teils in Mionnet's Schwefel-Abdrücken vor Augen, und nur bei wenigen musste ich mich auf Abbildungen in Münzwerken verlassen.
+
+*) Eine reiche Beispiel-Sammlung bietet Zoëga de obeliscis p. 194 ff. dar. Unter diesen kommen auch Sonnen- (Sol Elagabalus) und Mond-Steine (Urania, Mond) vor, die vom Himmel herab gefallen waren und die schon ihres Ursprungs halber auch in späterer Zeit ihre rohe Ungestalt behielten.
+
+*) Vgl. z. B. Pausan. 3, 19 und Heyne's Bemerkungen über diese Stelle in den antiquar. Aufsätzen St. 1 S. 71 f.
+
+*) Curtius 4, 7, 23 gibt, wie die Alten der Paphierin, so dem Orakelgott Ammon in Libyen die Nabel-Gestalt: umbilico maxime similis est habitus: welches auch von einem rundlichen, Hermenartigen Stein zu verstehen sein wird, ähnlich dem Bildniss Ammons in Megalopolis in Arkadien, das Pausanias 8, 32, 1 mit den viereckten Hermen vergleicht, und von dem er sagt, dass es Widder-Hörner am Kopf habe. Oder dachte sich Curtius den Libyschen Gott in Gestalt eines Ammons-Horns? Es wäre doch so unnatürlich nicht, wenn ihm, dem Gott der verwickelten und künstlich gedrehten (λοξὰ) Orakel-Sprüche, die Phönicier, durch die er bekannt wurde, eine gedrehte und gewundne Konchylien-Form gegeben hätten, wie sie ihrer Astarte die Dionaea oder Venus-Muschel als Sinnbild beigelegt haben sollen (s. Böttiger N. T. Mercur 1805 St. 3 S. 219), worauf sich, wenn man anders nöthig hätte so weit zu gehen, auch die Nabel-Gestalt der Paphia zurückführen liess. Merkwürdig ist immer, was nur Joh. Lydus (de mensib. p. 9) berichtet, die Aphrodite sei bei den Phöniciern Blatta nach der Purpur-Schnecke genannt worden. Vgl. über das Wort blatta Tzschucke's gelehrte Ausführung zu Eutrop. 7, 14 p. 478 f. der grossen Ausg. nebst dem Ind. notar. h. v. „Text blattam Tyrus“ Sidon. 5, 48.
+
 7) Am grössten und auffallendsten erscheint dieser Aufsatz der Meta in I, 13.
+
 8) Die neuesten und zwar erschöpfenden Untersuchungen über diesen Gegenstand find
 in Creuzer's Dionyfus P. 1 angestellt. Völlig durchgeführt wird er erst im zweyten Theil
 werden; dort wird man auch bestimmt erfahren, wie sich der Vf. die Entstehung der Sage
 von Kanobus, dem Steuermann des Menelaus, erklärt. Es war vermuthlich einer von He-
 lena's Brüdern, welche nachmals, mit den alten Samothrakischen Dioskuren oder Kabiren
 verwechselt, auch als Kanoben vorgestellt wurden.
+
 9) Siehe über diese kleinen Tischgötter, nach Seldenus, besonders Creuzer S. 136ff.
+
 10) Sestini descriptio numor. t. 9, 12. Die dort S. 410 f. gegebene Erklärung der
 Münze, die nach dem Geständniss des gelehrten Sestini nicht ganz gut erhalten und auch
 fehlerhaft abgezeichnet ist, bleibt an ihren Ort gestellt.
 glauben den Apollo und ihm gegenüber Daphne im Augenblick des Verwandelt -Werdens
 Nach der Zeichnung follte man
 zu erblicken.
+
 11) Eben so auf einer Paphischen Meta der Trajans - Münzen bey Tristan Comm. hist.
 T. 1 p. 295 Taf. 10, 15, wenn anders dieser Zeichnung zu trauen ist.
+
 12) Diess ist auch Böttigers Anficht im N. T. Mercur a. O. S. 219. f.
+
 13) Von dieser Amathuntischen zweyfaltigen Gottheit Aphroditos, so wie von den
 Hermaphroditen überhaupt, hat Heinrich de Hermaphroditor, origg. et caufis
 Hamb. 1805 mit vielem Scharfsinn gehandelt.
-14) S. über χρυσός απεφθος Locella bey Eckhel Doctr. num. I, 1 p. XXIII.
 
+14) S. über χρυσός απεφθος Locella bey Eckhel Doctr. num. I, 1 p. XXIII.
 
 15) Auch die Syrische Göttin, eine Art von Panthea, die sich mit der Aphrodite
 in den meisten Punkten berührt, hat, nach dem Lucianus de dea Syr. §. 32, etwas von
 den Moiren an fich.
+
 16) Epigenes beym Klemens Alex. 5 p. 571. A. B. aus dem Orpheus: Μοίρας, τὰ
 μέρη τῆς Σελήνης τριακάδα καὶ πεντεκαιδεκάτην καὶ νουμηνίαν, διὸ καὶ λευκοστόλους αὐτὰς
 καλεῖν τὸν Ὀρφέα, φωτὸς οὔσας μέρη.
+
 17) Wagner Ideen z. e. allg. Mythol. d. alt. Welt S. 218: „Die zeugende und gebäh-
 rende Kraft beginnt den Lebensfaden und ist daher selbst Schicksalsgöttin, da sie jedem fei-
 nen Antheil (μοίρα) an dem Leben zumisst; und wenn das Beginnen, Fortführen und Ab-
@@ -201,6 +178,7 @@ reissen des Fadens an drey Individuen vertheilt erscheint, so ist dies spätere 
 Entwicklung der ursprünglich einfachen Idee des Schicksals, welches in die allgebährende
 Kraft schon selbst verflochten ist, und die Aphrodite Urania ist allerdings die älteste der
 Parzen. Ihnen wurden auch, wie der Aphrodite selbst, weisse Turteltauben geopfert."
+
 18) S. die Münzen Vespafians I, 2. 3. 6., des Drusus I, 7 (aus Vaillant Num. Impp.
 aer. p. 93), des Augustus I, 8 (aus Morell. t. 45, 3. Letztre befindet sich auch im Münz-
 Schatz des Fürsten von Waldeck, nach Eckhel D. N. 3, 84, der noch ein ganz ähnliches
@@ -215,7 +193,7 @@ det sich auch z. B. in Vaill. App. t. 4, 13) eine Autonom - Münze I, 13 nach Mi
 Iupiter mit dem Diadem auf der Antlitz-Seite und der Paphische Tempel auf der Kehr-
 seite; auf den beiden Gemmen II, 15. 16. (nach Passeri t. 77. 78.); auf der Münze des
 Augustus II, 21 (aus Morell. t. 46, 9.)
-:
+
 19) S. Suidas, Hesych. und Etymolog. M. In letzterm scheint δόκανα νοη δοκεῖν
 ἀνεωγμένα εἶναι abgeleitet zu seyn, welches Stephanus Append. Thef. L. Gr. mit Recht für
 erkünstelt hält. Paufanias 3, 13, 1 meint vermuthlich dasselbe Denkmal, wenn er das
