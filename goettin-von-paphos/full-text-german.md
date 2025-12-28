@@ -132,109 +132,54 @@ Anmerkungen.
 
 *) Vgl. z. B. Pausan. 3, 19 und Heyne's Bemerkungen über diese Stelle in den antiquar. Aufsätzen St. 1 S. 71 f.
 
-*) Curtius 4, 7, 23 gibt, wie die Alten der Paphierin, so dem Orakelgott Ammon in Libyen die Nabel-Gestalt: umbilico maxime similis est habitus: welches auch von einem rundlichen, Hermenartigen Stein zu verstehen sein wird, ähnlich dem Bildniss Ammons in Megalopolis in Arkadien, das Pausanias 8, 32, 1 mit den viereckten Hermen vergleicht, und von dem er sagt, dass es Widder-Hörner am Kopf habe. Oder dachte sich Curtius den Libyschen Gott in Gestalt eines Ammons-Horns? Es wäre doch so unnatürlich nicht, wenn ihm, dem Gott der verwickelten und künstlich gedrehten (λοξὰ) Orakel-Sprüche, die Phönicier, durch die er bekannt wurde, eine gedrehte und gewundne Konchylien-Form gegeben hätten, wie sie ihrer Astarte die Dionaea oder Venus-Muschel als Sinnbild beigelegt haben sollen (s. Böttiger N. T. Mercur 1805 St. 3 S. 219), worauf sich, wenn man anders nöthig hätte so weit zu gehen, auch die Nabel-Gestalt der Paphia zurückführen liess. Merkwürdig ist immer, was nur Joh. Lydus (de mensib. p. 9) berichtet, die Aphrodite sei bei den Phöniciern Blatta nach der Purpur-Schnecke genannt worden. Vgl. über das Wort blatta Tzschucke's gelehrte Ausführung zu Eutrop. 7, 14 p. 478 f. der grossen Ausg. nebst dem Ind. notar. h. v. „Text blattam Tyrus“ Sidon. 5, 48.
+*) Curtius 4, 7, 23 gibt, wie die Alten der Paphierin, so dem Orakelgott Ammon in Libyen die Nabel-Gestalt: umbilico maxime similis est habitus: welches auch von einem rundlichen, Hermenartigen Stein zu verstehen sein wird, ähnlich dem Bildniss Ammons in Megalopolis in Arkadien, das Pausanias 8, 32, 1 mit den viereckten Hermen vergleicht, und von dem er sagt, dass es Widder-Hörner am Kopf habe. Oder dachte sich Curtius den Libyschen Gott in Gestalt eines Ammons-Horns? Es wäre doch so unnatürlich nicht, wenn ihm, dem Gott der verwickelten und künstlich gedrehten (λοξὰ) Orakel-Sprüche, die Phönicier, durch die er bekannt wurde, eine gedrehte und gewundne Konchylien-Form gegeben hätten, wie sie ihrer Astarte die Dionaea oder Venus-Muschel als Sinnbild beigelegt haben sollen (s. Böttiger N. T. Mercur 1805 St. 3 S. 219), worauf sich, wenn man anders nöthig hätte so weit zu gehen, auch die Nabel-Gestalt der Paphia zurückführen liess. Merkwürdig ist immer, was nur Joh. Lydus (de mensib. p. 9) berichtet, die Aphrodite sei bei den Phöniciern Blatta nach der Purpur-Schnecke genannt worden. Vgl. über das Wort blatta Tzschucke's gelehrte Ausführung zu Eutrop. 7, 14 p. 478 f. der grossen Ausg. nebst dem Ind. notar. h. v. „fert blattam Tyrus“ Sidon. Carmen 5, 48.
 
-7) Am grössten und auffallendsten erscheint dieser Aufsatz der Meta in I, 13.
+*) Am grössten und auffallendsten erscheint dieser Aufsatz der Meta in 1., 13.
 
-8) Die neuesten und zwar erschöpfenden Untersuchungen über diesen Gegenstand find
-in Creuzer's Dionyfus P. 1 angestellt. Völlig durchgeführt wird er erst im zweyten Theil
-werden; dort wird man auch bestimmt erfahren, wie sich der Vf. die Entstehung der Sage
-von Kanobus, dem Steuermann des Menelaus, erklärt. Es war vermuthlich einer von He-
-lena's Brüdern, welche nachmals, mit den alten Samothrakischen Dioskuren oder Kabiren
-verwechselt, auch als Kanoben vorgestellt wurden.
+*) Die neuesten und zwar erschöpfenden Untersuchungen über diesen Gegenstand sind in Creuzer's Dionysus P. 1 angestellt. Völlig durchgeführt wird er erst im zweiten Teil werden; dort wird man auch bestimmt erfahren, wie sich der Vf. die Entstehung der Sage von Kanobus, dem Steuermann des Menelaus, erklärt. Es war vermutlich einer von Helena's Brüdern, welche nachmals, mit den alten Samothrakischen Dioskuren oder Kabiren verwechselt, auch als Kanoben vorgestellt wurden.
 
-9) Siehe über diese kleinen Tischgötter, nach Seldenus, besonders Creuzer S. 136ff.
+*) Siehe über diese kleinen Tischgötter, nach Seldenus, besonders Creuzer S. 136 ff.
 
-10) Sestini descriptio numor. t. 9, 12. Die dort S. 410 f. gegebene Erklärung der
-Münze, die nach dem Geständniss des gelehrten Sestini nicht ganz gut erhalten und auch
-fehlerhaft abgezeichnet ist, bleibt an ihren Ort gestellt.
-glauben den Apollo und ihm gegenüber Daphne im Augenblick des Verwandelt -Werdens
-Nach der Zeichnung follte man
-zu erblicken.
+*) Sestini descriptio numor. t. 9, 12. Die dort S. 410 f. gegebene Erklärung der Münze, die nach dem Geständniss des gelehrten Sestini nicht ganz gut erhalten und auch fehlerhaft abgezeichnet ist, bleibt an ihren Ort gestellt. Nach der Zeichnung sollte man glauben den Apollo und ihm gegenüber Daphne im Augenblick des Verwandelt-Werdens zu erblicken.
 
-11) Eben so auf einer Paphischen Meta der Trajans - Münzen bey Tristan Comm. hist.
-T. 1 p. 295 Taf. 10, 15, wenn anders dieser Zeichnung zu trauen ist.
+*) Eben so auf einer Paphischen Meta der Trajans-Münzen bei Tristan Comm. hist. T. 1 p. 295 Taf. 10, 15, wenn anders dieser Zeichnung zu trauen ist.
 
-12) Diess ist auch Böttigers Anficht im N. T. Mercur a. O. S. 219. f.
+*) Diess ist auch Böttigers Ansicht im N. T. Mercur a. O. S. 219. f.
 
-13) Von dieser Amathuntischen zweyfaltigen Gottheit Aphroditos, so wie von den
-Hermaphroditen überhaupt, hat Heinrich de Hermaphroditor, origg. et caufis
-Hamb. 1805 mit vielem Scharfsinn gehandelt.
+*) Von dieser Amathuntischen zweifaltigen Gottheit Aphroditos, so wie von den Hermaphroditen überhaupt, hat Heinrich de Hermaphroditor. origg. et causis Hamb. 1805 mit vielem Scharfsinn gehandelt.
 
-14) S. über χρυσός απεφθος Locella bey Eckhel Doctr. num. I, 1 p. XXIII.
+*) S. über χρυσὸς ἄπεφθος Locella bei Eckhel Doctr. num. 1., 1 p. 23.
 
-15) Auch die Syrische Göttin, eine Art von Panthea, die sich mit der Aphrodite
-in den meisten Punkten berührt, hat, nach dem Lucianus de dea Syr. §. 32, etwas von
-den Moiren an fich.
+*) Auch die Syrische Göttin, eine Art von Panthea, die sich mit der Aphrodite in den meisten Punkten berührt, hat, nach dem Lucianus de dea Syr. §. 32, etwas von den Moiren an sich.
 
-16) Epigenes beym Klemens Alex. 5 p. 571. A. B. aus dem Orpheus: Μοίρας, τὰ
-μέρη τῆς Σελήνης τριακάδα καὶ πεντεκαιδεκάτην καὶ νουμηνίαν, διὸ καὶ λευκοστόλους αὐτὰς
-καλεῖν τὸν Ὀρφέα, φωτὸς οὔσας μέρη.
+*) Epigenes beim Klemens Alex. 5 p. 571. A. B. aus dem Orpheus: Μοῖρας, τὰ μέρη τῆς Σελήνης τριακάδα καὶ πεντεκαιδεκάτην καὶ νουμηνίαν, διὸ καὶ λευκοστόλους αὐτὰς καλεῖν τὸν Ὀρφέα, φωτὸς οὔσας μέρη.
 
-17) Wagner Ideen z. e. allg. Mythol. d. alt. Welt S. 218: „Die zeugende und gebäh-
-rende Kraft beginnt den Lebensfaden und ist daher selbst Schicksalsgöttin, da sie jedem fei-
-nen Antheil (μοίρα) an dem Leben zumisst; und wenn das Beginnen, Fortführen und Ab-
-reissen des Fadens an drey Individuen vertheilt erscheint, so ist dies spätere und plastische
-Entwicklung der ursprünglich einfachen Idee des Schicksals, welches in die allgebährende
-Kraft schon selbst verflochten ist, und die Aphrodite Urania ist allerdings die älteste der
-Parzen. Ihnen wurden auch, wie der Aphrodite selbst, weisse Turteltauben geopfert."
+*) Wagner Ideen z. e. allg. Mythol. d. alt. Welt S. 218: „Die zeugende und gebährende Kraft beginnt den Lebensfaden und ist daher selbst Schicksalsgöttin, da sie jedem seinen Anteil (μοῖρα) an dem Leben zumisst; und wenn das Beginnen, Fortführen und Abreissen des Fadens an drei Individuen verteilt erscheint, so ist dies spätere und plastische Entwicklung der ursprünglich einfachen Idee des Schicksals, welches in die allgebährende Kraft schon selbst verflochten ist, und die Aphrodite Urania ist allerdings die älteste der Parzen. Ihnen wurden auch, wie der Aphrodite selbst, weisse Turteltauben geopfert.“
 
-18) S. die Münzen Vespafians I, 2. 3. 6., des Drusus I, 7 (aus Vaillant Num. Impp.
-aer. p. 93), des Augustus I, 8 (aus Morell. t. 45, 3. Letztre befindet sich auch im Münz-
-Schatz des Fürsten von Waldeck, nach Eckhel D. N. 3, 84, der noch ein ganz ähnliches
-Gepräge erwähnt, über welches Sest. Lett. 8, 9o zu vergleichen ist. Eine Art von Tempel-
-Fronton sieht man auch noch auf einer Münze des Drufus Patin p. 80. Vaillant a. O., wenn
-es nicht, wie ich fürchte, falsche Ergänzung der auf den meisten Münzen über den Quer-
-balken befindlichen Sternzeichen oder auch Festons ist, die auf vielen Exemplaren unkennt-
-lich find. Auch erfcheint dieser Giebel nicht auf der Abbildung derfelben Drufus-Münze
-bey Morell. t. 9, 29.), die Autonom - Münze von Pergamus I, 9 (nach Mionnet. Vgl. Eckh.
-2,463), des Hadrianus I, 1o (nach Mionnet) und I, 11 (nach ebendess. Exemplar, befin-
-det sich auch z. B. in Vaill. App. t. 4, 13) eine Autonom - Münze I, 13 nach Mionnet;
-Iupiter mit dem Diadem auf der Antlitz-Seite und der Paphische Tempel auf der Kehr-
-seite; auf den beiden Gemmen II, 15. 16. (nach Passeri t. 77. 78.); auf der Münze des
-Augustus II, 21 (aus Morell. t. 46, 9.)
+*) S. die Münzen Vespasians 1., 2. 3. 6., des Drusus 1., 7 (aus Vaillant Num. Impp. aer. p. 93), des Augustus 1., 8 (aus Morell. t. 45, 3. Letztre befindet sich auch im Münzschatz des Fürsten von Waldeck, nach Eckhel D. N. 3, 84, der noch ein ganz ähnliches Gepräge erwähnt, über welches Sest. Lett. 8, 90 zu vergleichen ist. Eine Art von Tempel-Fronton sieht man auch noch auf einer Münze des Drusus Patin p. 80. Vaillant a. O., wenn es nicht, wie ich fürchte, falsche Ergänzung der auf den meisten Münzen über den Querbalken befindlichen Sternzeichen oder auch Festons ist, die auf vielen Exemplaren unkenntlich sind. Auch erscheint dieser Giebel nicht auf der Abbildung derselben Drusus-Münze bei Morell. t. 9, 29.), die Autonom-Münze von Pergamus 1., 9 (nach Mionnet. Vgl. Eckh. 2, 463), des Hadrianus 1., 10 (nach Mionnet) und 1., 11 (nach ebendess. Exemplar, befindet sich auch z. B. in Vaill. App. t. 4, 13) eine Autonom-Münze 1., 13 nach Mionnet; Jupiter mit dem Diadem auf der Antlitz-Seite und der Paphische Tempel auf der Kehrseite; auf den beiden Gemmen 2., 15. 16. (nach Passeri t. 77. 78.); auf der Münze des Augustus 2., 21 (aus Morell. t. 46, 9.)
 
-19) S. Suidas, Hesych. und Etymolog. M. In letzterm scheint δόκανα νοη δοκεῖν
-ἀνεωγμένα εἶναι abgeleitet zu seyn, welches Stephanus Append. Thef. L. Gr. mit Recht für
-erkünstelt hält. Paufanias 3, 13, 1 meint vermuthlich dasselbe Denkmal, wenn er das
-Grabmal_und Heiligthum des Kastor in Sparta anführt.
+*) S. Suidas, Hesych. und Etymolog. M. In letzterm scheint δόκανα von δοκεῖν ἀνεῳγμένα εἶναι abgeleitet zu sein, welches Stephanus Append. Thes. L. Gr. mit Recht für erkünstelt hält. Pausanias 3, 13, 1 meint vermutlich dasselbe Denkmal, wenn er das Grabmal und Heiligtum des Kastor in Sparta anführt.
 
+*) Vgl. Heyne Antiq. Aufsätze 1 S. 7. Stieglitz Arch. d. Bauk. 2, 5 not. b.
 
-20) Vgl. Heyne Antiq. Auffätze 1 S. 7. Stieglitz Arch. d. Bauk. 2,5 not. b.
-21) Die ganze Inschrift von I, 12. 14 ist ΕΤΟΥΣ ΝΕΟΥ ΙΕΡΟΥ Θ. d. h. im neun-
-ten Jahre der Regierung Vespasians.
-Da der Zahl-Buchstabe nicht auf dem Umkreis
-Platz gefunden hat, so ist er auf dem Stämpel von n. 12 über die Meta zwischen die zwey
-vertikalen Balken, auf n. 14 unten in die Exergue verwiesen worden.
-22) Es liegt eine Münze der Pergäischen Diana in Mionnet's Abdruck vor mir, de-
-ren Tempel mit einem gleichen Vorhof umgeben ist.
-23) Eine Münze der Didia Clara gibt völlig dieselbe Vorstellung Haverc. Numm. R.
-Chrifti. t. 24,8.
-24.) In der ersten Vignette T. 3 der Pitt. d'Ercolano sitzen auch zwey Tauben, die
-dort auf die Dodonäifchen gedeutet werden, auf Leuchtern. Auf einigen Münzen der Per-
-gäischen Artemis erblickt man auch zur Seite des grossen Steines geflügelte Wefen, wel-
-che Pellerin und Eckhel für Tauben nehmen.
-*) In diefem Augenblick werde ich durch Böttiger's vielsagende, noch mehr andeu-
-tende Ifis-Vesper in dem Taschenbuch Minerva fürs Jahr 1809 S. 126 f. an die in den
-Isis - Tempeln in Aegypten unterhaltenen heiligen Ibis erinnert und an die Vorstellung des
-Isis - Tempels und Vorhofs in den Herkulanischen Gemählden (T. 2 t. 60), wo die Ibis ganz
-traulich und einheimisch beym Altar, auf einem Sphinx und auf einem Tempel-Brunnen
-stehen.
-25) Die Münze von Askalon II, 18 befindet sich im Goth, Kabinet. Vgl. Sestini Lett.
-T. 6 p. 82 t. 3, 10.
-26) S. die Stellen beysammen in de Brosses sur l' Oracle de Dodone, Mém. de l' Ac.
-des Infcr. T. 35. p. 107. ff.
-27) Ἀθύρματα Αφροδίτης. Der ausgezeichneten Tauben in Kypros erwähnen die Alten
-mehr als einmal. Seltsam ist die Anekdote beym Athenäus 6, 16 p. 257 F. aus dem Komiker
-Antiphanes, wie dem König von Kypros durch die ihn während der Mahlzeit umflatternden
-Tauben Kühlung verschafft werde. Er salbe sein Haupt nemlich mit einer fyrischen Salbe
-von einer Frucht, die sehr gern von den Tauben genossen werde; von diesem Geruch an-
-gezogen umflögen sie seinen Kopf, würden aber von daneben stehenden Knaben abgehal-
-ten, sich darauf zu setzen,
+*) Die ganze Inschrift von 1., 12. 14 ist ΕΤΟΥΣ ΝΕΟΥ ΙΕΡΟΥ Θ. d. h. im neunten Jahre der Regierung Vespasians. Da der Zahl-Buchstabe Θ nicht auf dem Umkreis Platz gefunden hat, so ist er auf dem Stämpel von n. 12 über die Meta zwischen die zwei vertikalen Balken, auf n. 14 unten in die Exergue verwiesen worden.
 
-28) Aefch. Theb. 24 ὁ μάντις – διωνῶν βοτήρ.
-29) Vgl. über kleine tragbare Tempel Ap. Gesch. 19, 24ff., welche Stelle Visconti
-Muf. Pio - Clem. T. 1. p. 66 benutzt hat.
-30) Was für eine Art von Beywerk die kleinen runden Figuren auf II, 20 find, be-
-kenne ich, nicht zu wissen, wenn man nicht etwa die Kugel-Gestalten für Sinnbilder der
-schaffenden Kraft erklären will.
+*) Es liegt eine Münze der Pergäischen Diana in Mionnet's Abdruck vor mir, deren Tempel mit einem gleichen Vorhof umgeben ist.
+
+*) Eine Münze der Didia Clara gibt völlig dieselbe Vorstellung Haverc. Numm. R. Christi. t. 24, 8.
+
+*) In der ersten Vignette T. 3 der Pitt. d'Ercolano sitzen auch zwei Tauben, die dort auf die Dodonäischen gedeutet werden, auf Leuchtern. Auf einigen Münzen der Pergäischen Artemis erblickt man auch zur Seite des grossen Steines geflügelte Wesen, welche Pellerin und Eckhel für Tauben nehmen.
+
+*) In diesem Augenblick werde ich durch Böttiger's vielsagende, noch mehr andeutende Isis-Vesper in dem Taschenbuch Minerva fürs Jahr 1809 S. 126 f. an die in den Isis-Tempeln in Aegypten unterhaltenen heiligen Ibis erinnert und an die Vorstellung des Isis-Tempels und Vorhofs in den Herkulanischen Gemählden (T. 2 t. 60), wo die Ibis ganz traulich und einheimisch beim Altar, auf einem Sphinx und auf einem Tempel-Brunnen stehen.
+
+*) Die Münze von Askalon 2., 18 befindet sich im Goth. Kabinet. Vgl. Sestini Lett. T. 6 p. 82 t. 3, 10.
+
+*) S. die Stellen beisammen in de Brosses sur l'Oracle de Dodone, Mém. de l'Ac. des Inscr. T. 35. p. 107. ff.
+
+*) Ἀθύρματα Ἀφροδίτης. Der ausgezeichneten Tauben in Kypros erwähnen die Alten mehr als einmal. Seltsam ist die Anekdote beim Athenäus 6, 16 p. 257 F. aus dem Komiker Antiphanes, wie dem König von Kypros durch die ihn während der Mahlzeit umflatternden Tauben Kühlung verschafft werde. Er salbe sein Haupt nemlich mit einer syrischen Salbe von einer Frucht, die sehr gern von den Tauben genossen werde; von diesem Geruch angezogen umflögen sie seinen Kopf, würden aber von daneben stehenden Knaben abgehalten, sich darauf zu setzen.
+
+*) Aesch. Theb. 24 ὁ μάντις --- ὀιωνῶν βοτήρ.
+
+*) Vgl. über kleine tragbare Tempel Ap. Gesch. 19, 24 ff., welche Stelle Visconti Mus. Pio-Clem. T. 1. p. 66 benutzt hat.
+
+*) Was für eine Art von Beiwerk die kleinen runden Figuren auf 2., 20 sind, bekenne ich, nicht zu wissen, wenn man nicht etwa die Kugel-Gestalten für Sinnbilder der schaffenden Kraft erklären will.
