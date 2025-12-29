@@ -1,6 +1,6 @@
 # Die Göttin von Paphos auf alten Bildwerken und Baphomet.
 
-## Von C. G. Lenz.
+## Von K. G. Lenz.
 
 **--- Argentum et marmor vetus aeraque et artes suspice. Horat.**
 
